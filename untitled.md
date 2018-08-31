@@ -11,42 +11,41 @@ I love this beach, La Mata beach. I love all the beaches.
 I love the people on the beach, playing, sunbathing, relaxing, enjoying.
 I love the children, especially the children's happiness, playfulness and their happy voices.
 
-Especially I love to see the families together, having great time and joy.
-And especially, I love the fact that nowadays there are mostly Spanish on the beach, at least here in Torrevieja area, in this lovely town.
+Especially I love to see the families together, having a great time.
+And especially, I love the fact that nowadays there are mostly Spanish on the beach, at least here in the Torrevieja area, in this lovely town.
 
 There are lots of tourists, all around, but the best thing is that there are Spanish and locals as a majority. I still remember about thirty years ago how most of the people on the Spanish beaches were tourists, which was odd back then. I always hoped to have Spanish enjoying their time on their wonderful beaches. And now that time has come, which is truly great.
 
-It’s wonderful to hear many, many languages, and people coming from different countries, different nationalities. I know many languages, about 9 in different levels, and hearing so many here sounds like music for my ears. 
+It’s wonderful to hear many, many languages, and people coming from different countries, different nationalities. I know many languages, about 9 in different levels, and hearing so many here sounds like music to my ears. 
 
-I can recognize Spanish of course, a lot of English, as well as Eastern European, French spoken by French or Belgian, both more and more here... There are some Germans always, lots of people speaking some of Scandinavian languages, Swedish, Norwegian and even Finnish. Often there are some Italian, and I always feel I have to greet them with “ciao!” or “buon giorno!” I love Italian too.
+I can recognize Spanish of course, a lot of English, as well as Eastern European, French spoken by French or Belgian, both more and more here... There are some Germans always, lots of people speaking some of Scandinavian languages, Swedish, Norwegian and even Finnish. Often there are some Italian, and I always feel I have to greet them with “ciao!” or “buon giorno!”, I love Italian too.
 
-I love the fact how many nationalities and languages I can hear here. It is wonderful how unbelievably multinational and international this little lovely town is. Actually, as thinking of it, this place is maybe one of the most multinational towns on the earth. Well, maybe Brussels is even more, but this town is definitely one of the most international towns on the world. In fact there are people living here from over 30 different nationalities, and that’s a lot. Great!
+I love the how many nationalities and languages I can hear here. It is wonderful how unbelievably multinational and international this little lovely town is. Actually, thinking of it, this place is maybe one of the most multinational towns on earth. Well, maybe Brussels is even more, but this town is definitely one of the most international towns on the world. In fact there are people living here from over 30 different nationalities, and that’s a lot. Great!
 
-I love the sea, the waves reaching the beach on the sea shoreline, the sound of the sea.
-I love the sea, the people swimming and playing, just floating or jumping against the waves, doing water sports, some surfing, some paddling, on the other beaches many wind boarding, going out for diving.
+I love the sea, the waves reaching the beach on the sea shoreline, the sound of the sea. The people swimming and playing, just floating or jumping against the waves, doing water sports, some surfing, some paddling, on the other beaches many wind boarding, going out for diving.
 
 I love the horizon, jet-skis, boats and some cargo ships further on. The most I love the horizon and the eternity it represents, the horizon line looking like the edge, but actually being the beginning of the world exploration, the promise of the fascinating world and endless adventures. I love the sea, its force and might, everlasting movement, even the colors.
 
-I’m smiling, feeling a great intake of the fresh air, and as I see it the energy. There is a magical energy on the beaches, all free for everybody. It’s about sense of good feelings, the sea, fresh air, sunshine, free positive energy.
+I’m smiling, feeling a great intake of the fresh air, and as I see it the energy. There is a magical energy on the beaches, all free for everybody. It’s about a sense of good feelings, the sea, fresh air, sunshine, free positive energy.
 
 Four kids playing the beach football, their ball escaping towards me…
 I kick the ball back to them, “gracias!” they shout at, and I dodge a little to give them space, continuing my walk. 
 
-I absolutely love long beach walks, barefoot, the sand massaging my foot bottoms. I have used to do long walks barefoot, sometimes only four kilometers, sometimes ten or fifteen, but it always being my regular habit, almost in daily basis, when staying or living at the seaside, within any reasonable proximity of the sea.
+I absolutely love long beach walks, barefoot, the sand massaging my foot bottoms. I have always used do long walks barefoot, sometimes only four kilometers, sometimes ten or fifteen, but it's always been my regular habit, almost on a daily basis, when staying or living at the seaside, within any reasonable proximity of the sea.
 
-As being a beach person, always been, one time almost practically lived on the beach or just next to the beaches, spent the best times in my live on the beachside… And as being a swimmer and diver, loving the boats… I must say that I truly love it, this, all of this.
+Having always been a beach person, one time almost practically living on the beach or just next to the beaches, I've spent the best times in my life on the beach side… And being a swimmer and diver, loving the boats… I must say that I truly love it, this, all of this.
 
-I’m continuing my walk, coming already back from my turning point “the Torrevieja”, an actual Torre de Vieja, “Old Tower”, old little turret standing on the shoreline on its own.
+I’m continuing my walk, already coming back from my turning point “the Torrevieja”, an actual Torre de Vieja, “Old Tower”, old little turret standing on the shoreline on its own.
 
-I have done this twice today, two kilometers long La Mata beach between my two turning points, rocks and rocky shoreline on the other end continuing towards the actual Torrevieja town, and Torre de Vieja tower and plaza on the other end. It is four kilometers back and forth, eight as I’ve done it twice already.
+I have done this twice today, two kilometers long La Mata beach between my two turning points, a rocky shoreline on one end, continuing towards the actual Torrevieja town, and Torre de Vieja tower and plaza on the other end. It is four kilometers back and forth, eight as I’ve done it twice already.
 
-Just right now, I have come about two hundred meters back from Torre de Vieja, walking fast forward as always, letting my legs to do all the sports…
+Just right now, I have come about two hundred meters back from Torre de Vieja, walking fast forwards as always, letting my legs to do all the sports…
 
 But now something is distracting me.
-A little detail, just a sudden sight on my right eye corner, something unfamiliar, something different from usual… 
+A little detail, just a sudden sight on my right eyes corner, something unfamiliar, something different from usual… 
 About seventy meters away from me.
 
-I see hundreds of the people on the beach, all around, actually even thousands as thinking of the whole huge about hundred meters wide and two kilometers long beach. I see hundreds of the children, people of all ages, all enjoying of their Sunday afternoon. Most of them are on a holiday, having a great time with their loved ones.
+I see hundreds of the people on the beach, all around, actually even thousands when thinking about the whole huge, about hundred meters wide and two kilometers long beach. I see hundreds of children, people of all ages, all enjoying of their Sunday afternoon. Most of them are on a holiday, having a great time with their loved ones.
 
 I see a nice children’s playground area with equipments and the children playing there. I see lots of sun beds and sun shades in a rental area and all full of the people. 
 
@@ -55,31 +54,31 @@ So great, so lovely, so peaceful…
 But that little detail a bit further on the beach, just next to the little dunes, is distracting me.
 It cracks the pretty much perfect picture on my mind, alarming my instincts, telling me disruptive signs… 
 
-And I must say that I very much dislike that feeling, alarming instinct ringing the bells on my mind here, here on this wonderful beach, among all these people, the children.
+And I must say that I very much dislike that feeling, an alarming instinct ringing the bells on my mind here, here on this wonderful beach, among all these people, the children.
 
-Four men in black suits, looking like wetsuits. But something different, some special gears.
+Four men in black suits, looking like wetsuits. But with something different, some special gear.
 
-They have bags on their hands each of them.
+Each of them has a bag in their hands.
 
 Are they sportsmen, going out for a dive, snorkels and flippers in their bags?
 
-I would think so, but their posture, their movement, some kind of alertness, a tense on their behavior… 
+I would think so, but their posture, their movement, some kind of alertness, a tenseness in their behavior… 
 
 That’s the detail which is alarming me.
 And when my instincts are alarming in this way, in a warning way, I very much dislike it happening here.
 
 My instincts are mostly right, and when I’m getting this alarm on my mind, in this kind of great place full of the people… 
-It makes me worrying.
+It makes me worry.
 
-Maybe the alarm is false, just a detail which is distracting me, a little cheeseburger worth of forgetting straight away.
+Maybe the alarm is false, just a detail which is distracting me, a little cheeseburgers worth of forgetting straight away.
 
 I’m walking ahead, my pace slowing down a little, feeling like I would like to stop, just for a moment to have a look, a bit better look.
 
 Just as thinking of it I stop walking. 
 
-I’m looking at the sea and the people, being just like everybody on the beach, but I’m also following those four men still on sight on the corner of my eyes.
+I’m looking at the sea and the people, being just like everybody on the beach, but I’m also following those four men still on sight in the corner of my eyes.
 
-Are they just as everybody, going to have fun, maybe doing sports as that’s how they look like? Or what are they actually doing here?
+Are they just like everyone, going to have fun, maybe doing sports since that’s how they look like? Or what are they actually doing here?
 
 They look a bit suspicious.
 
