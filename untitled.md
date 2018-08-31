@@ -9,7 +9,7 @@ In many, many years in the past I have been here. I love this town.
 I love this beach, La Mata beach. I love all the beaches.
 
 I love the people on the beach, playing, sunbathing, relaxing, enjoying.
-I love the children, especially the children, happiness, playfulness, their happy voices.
+I love the children, especially the children's happiness, playfulness and their happy voices.
 
 Especially I love to see the families together, having great time and joy.
 And especially, I love the fact that nowadays there are mostly Spanish on the beach, at least here in Torrevieja area, in this lovely town.
