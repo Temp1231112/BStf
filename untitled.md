@@ -67,7 +67,7 @@ I would think so, but their posture, their movement, some kind of alertness, a t
 That’s the detail which is alarming me.
 And when my instincts are alarming in this way, in a warning way, I very much dislike it happening here.
 
-My instincts are mostly right, and when I’m getting this alarm on my mind, in this kind of great place full of the people… 
+My instincts are usually right, and when I’m getting this alarm on my mind, in this kind of great place full of the people… 
 It makes me worry.
 
 Maybe the alarm is false, just a detail which is distracting me, a little cheeseburgers worth of forgetting straight away.
@@ -82,34 +82,34 @@ Are they just like everyone, going to have fun, maybe doing sports since that’
 
 They look a bit suspicious.
 
-The first thing is that they all have exactly the same costume, kind of wetsuits, but some a bit odd looking clothing, on them. It looks like a black training costume, covering the full body, including the head. 
+The first thing is that they all have exactly the same costume, kind of wetsuits, but ones with a bit odd looking clothing, on them. It looks like a black training costume, covering the full body, including the head. 
 
 Why would four men use exactly the same wetsuits as normally people are individuals and everyone has got their own taste?
 
 To me, the same outfit with all the guys resembles me of some official such like the military, police or special force. Having exactly the same outfit makes four men being a group of something unifying. It makes their outfit purposely chosen, and when there is a special outfit for anything, there is a purpose too.
 
-Almost laughing at my thoughts on my mind, trying to tell myself that I’m silly now, just too cautious, overreaching my preparedness…
+I'm almost laughing at my thoughts on my mind, trying to tell myself that I’m silly now, just too cautious, overreaching to my preparedness…
 
 But there are more disruptive signs, such as their coordinated movement.
 
-Ordinary people in groups are always moving “flexibly”. Even when being in the group and going into the same direction. All the people are individuals, and they have their own ways of move and communicate with the others. They are very much just naturally what they are, each of them.
+Ordinary people in groups are always moving “flexibly”. Even when in a group and going into the same direction. All the people are individuals, and they have their own ways of moving and communicating with others. They are very much just naturally what they are, each of them.
 
 But when trained people, a group of individuals, having repeated trained movements especially when moving in a group… 
-That’s completely something different.
+That’s something completely different.
 
-And even though, those four men are clearly trying to be just like the others, it’s easy to see their trained and coordinated minds working together, being linked with each other.
+And even though, those four men are clearly trying to be just like others, it’s easy to see their trained and coordinated minds working together, being linked with each other.
 
-In that well trained world, everything is based on certain automation, and when the persons are well trained, over and over again, repeated certain movements endless of times, being coordinated with the others in their group, that makes their posture very different from the ordinary people, to me.
+In that well trained world, everything is based on certain automation, and when the people are well trained, repeating certain movements over and over again, being coordinated with the others in their group, that makes their posture very different from ordinary people, to me.
 
-Who knows and who has been involved in the same, can recognize it on the others.
+Those who know and have been involved in the same stuff, can recognize it on others.
 
-I’m still standing but turning a little bit around as looking at the people on the beach. At the moment, the trained part of me is starting to play my own role now, as I’m being “just like anyone else here”. It’s like a game.
+I’m still standing but turning around a little bit, looking at the people on the beach. At the moment, the trained part of me is starting to play my own role now, I’m being “just like anyone else here”. It’s like a game.
 
-A main point is to avoid them to notice anything alarming on my behavior, just in case.
+A main point is to avoid them noticing anything alarming in my behavior, just in case.
 
-How silly I am I think. They are just four normal guys coming to the beach, having some sports gears on their black bags, towels and maybe some snacks. Just like everybody.
+How silly I am, I think. They are just four normal guys coming to the beach, having some sports gears on their black bags, towels and maybe some snacks. Just like everybody.
 
-But as thinking of my silliness, those four “ordinary” guys stop from walking. They are looking around, scoping their surrounding, all in a well coordinated way… even too well. And that “too well” is a part what worries me.
+But while thinking of my silliness, those four “ordinary” guys stop walking. They are looking around, scoping their surrounding, all in a well coordinated way… even too well. And that “too well” is the part that worries me.
 
 Silly or whatever, but the alarm on my mind is now ringing red. False or accurate, hopefully fully false, is the tension rising in my body and my mind. Adrenaline starting to run onto my veins, the hearth’s pace accelerating, all alarms on at the moment…
 
@@ -119,7 +119,7 @@ What on earth is going on?
 
 That’s what I think at the moment.
 
-Very worrying thoughts are popping up on my mind, one after the other. In a way it’s senseless, as it is just a normal wonderful day, the beach full of the people, all enjoying their time and their life, especially the children.
+Very worrying thoughts are popping up on my mind, one after another. In a way it’s senseless, as it is just a normal wonderful day, at the beach full of people, all enjoying their time and their life, especially the children.-
 
 And as thinking of that, trying to convince myself of my silly instincts fooling me, all of a sudden I get it. 
 “Whatever, it’s my call now” I think.
@@ -141,11 +141,11 @@ Well, “Shit” I think.
 Now feeling tense, excitement, adrenaline reforming my mind and preparedness…
 I let the word burst out from my mouth, depicting the whole thing and what I think about it, “Fuck!”
 
-And I start approaching the four men, now standing and observing their surrounding, them standing just a few meters from the little dunes area and the fence around it, next to the safeguards little wooden cabin…
+And I start approaching the four men, now standing and observing their surrounding, them standing just a few meters from the little dunes area and the fence around it, next to the lifeguards little wooden cabin…
 
-I take my sight a bit aside from them, repeating myself, swearing the whole thing on my mind, thinking that this must be some bad luck scenario now. Hot red alarming bells are rising the chances it being a “bad luck case”.
+I take my gaze a bit away from them, repeating to myself, swearing the whole time in my mind, thinking that this must be some bad luck scenario now. Hot red alarming bells are rising the chances it being a “bad luck case”.
 
-“Fuck! I say again, starting to walk towards to the boardwalk on the beach, leading in or out, in this case passing by the four men. I step on the boardwalk, look down, peak them, still swearing on my mind, but feeling now adrenaline affirming my determination. 
+“Fuck! I say again, starting to walk towards to the boardwalk on the beach, going between people, in this case passing by the four men. I step on the boardwalk, look down, peak them, still swearing in my mind, but now feeling the adrenaline affirming my determination. 
 
 “Fuck, whatever it is, I’ll take this call.”
 
@@ -177,7 +177,7 @@ I start walking towards the four men, along the boardwalk, at first slowly, but 
 
 Things are raging on my mind, “what if?”
 
-My instincts are alarming hot red. At the same time I’m rationalizing and telling myself that it’s impossible that anything like my fears now are would ever happen.
+My instincts are alarming red hot. At the same time I’m rationalizing and telling myself that it’s impossible that anything like my fears now, would never happen.
 
 It’s way too great here, all the people, the children, happy voices, people playing and enjoying their time. 
 
@@ -185,65 +185,65 @@ How would anyone ever ruin that or do something so unbelievably horrible?
 
 So cruel, so brutal, so mad!
 
-Something like, as terrible as that, the worst possible scenario, which is now raging on my mind… Are they going to commit the worst ever kind of terrorist act?
+Something, as terrible as that, the worst possible scenario, which is now raging on my mind… Are they going to commit the worst ever kind of terrorist act?
 
-There have been cases, in Africa, on the beach resorts, actually on the beach, exactly in the places like this, in the very same situations than now here…
+There have been cases like this, in Africa, on the beach resorts, actually at the beach, exactly in places like this, in the very same situations as here now…
 
-I’m thinking that I must be the mad one here. How can I even think something like that being possible…? In Europe!?
+I’m thinking that I must be the mad one here. How can I even think something like that would be possible…? In Europe!?
 
 But on the other hand, bad, very bad things have happened in the last few years, more and more, serious well coordinated terror attacks, all kind of acts of violence, everyday terrorism, terror reaching a kind of “new normal” status in the people’s lives. 
 
-And what’s the craziest in all, the politicians are accepting it and somehow facilitating the whole thing, normalizing it all, and saying, that “it’s just how the things are nowadays, get used to it”. 
+And what’s the craziest of all in this, the politicians are accepting it and somehow facilitating the whole thing, normalizing it all, and saying, that “it’s just how the things are nowadays, get used to it”. 
 
-That kind of utter stupidity and madness makes me seeing red, pure hot red. Are they just incompetent to prevent and do anything to secure people’s lives, or is it all about politics? But that’s real madness.
+That kind of utter stupidity and madness makes me see red, pure hot red. Are they just incompetent to prevent and do anything to secure people’s lives, or is it all about politics? But that’s real madness.
 
 And that’s my “the worst scenario” here…
-A terror attack, similar than those recently in Africa, shootings and massacres on the beaches, targeting the innocent people, but also the most important industry, tourism…
+A terror attack, similar to those recently in Africa, shootings and massacres on the beaches, targeting innocent people, but also the most important industry, tourism…
 
 I hope I’m wrong. I must be wrong!
 It’s too bad to be true. I must be wrong!
 
-As my thoughts are raging I’m approaching closer to the four men. My heart is bouncing rapidly, pumping the adrenaline filled blood into my veins, filling me with alertness, naturally doped strength, excess human resources, normal abilities exceeding powers.  I’m getting doped with the body’s own drugs, the most powerful of all.
+As my thoughts are raging, I’m approaching closer to the four men. My heart is bouncing rapidly, pumping the adrenaline filled blood into my veins, filling me with alertness, naturally doped strength, excess human resources, normal abilities exceeding powers.  I’m getting doped with the body’s own drugs, the most powerful of all.
 
 Possibly terrorists, the most severe terror act, four trained men, possibly machine guns, shootout, bloodshed, massacre…
 
 I must be mad myself. 
-How can I even think the possibility like that?
+How can I even think of a possibility like that?
 
 I must have seen too many things in my past, too many action filled movies, too many imaginary acts of violence, too much.
 
-I would laugh at myself, my thoughts, my silliness, my own overreaching imaginary creating “the worst scenario possibilities”.
+I would laugh at myself, my thoughts, my silliness, my own overreaching imagination creating “the worst scenario possibilities”.
 
 But, my instincts were telling me that something is badly wrong, still are. And when my instincts are telling me things, I take it. They have saved me so many times, my life. I’ll give the highest respect to them.
 
 I’m walking forward, slowly, playing my role. Looking around, smiling, paying a bit more attention to the group of sexy chicks. I’m just a normal guy, walker, sun-seeker, holiday-maker, old foe, retired…
 
-Then I get a sudden alarm on my mind, my copycat army pants… I’m wearing old army style shorts, what about that I think.
+Then I get a sudden alarm on my mind, my copycat army pants… I’m wearing old army style shorts, what about them, I think.
 
-I must ignore it, everyone is in these days. It’s just a normal fashion. As for a confirmation, I look around and I see that the ones wearing this kind of “normal fashion”… Well, it’s only me. All others have got swimming trunks, beach shorts, only that... 
+I must ignore it, everything is in these days. It’s just a normal fashion. As for a confirmation, I look around and I see that the ones wearing this kind of “normal fashion”… Well, it’s only me. All others have got swimming trunks, beach shorts, only that... 
 Yep, I see, I’m also the only one wearing the grayish-bluish sleeveless t-shirt. 
 
-“Shit” I think, just in case. It hardly signals anything to them. And the hope that the ringing bells on my mind are ridiculously wrong, who cares what I’m wearing…
+“Shit” I think, just in case. It hardly signals anything to them. And in hopes that the ringing bells on my mind are ridiculously wrong, who cares what I’m wearing…
 
-At the same time, with my raging thoughts, approaching the four men in “kind of” black wetsuits, I look at them, having one “a bit too long peek”. But at once it’s done I must be straight and just look at them for a short moment, as otherwise my escaping glance would alarm them, surely.
+At the same time, with my raging thoughts, approaching the four men in “kind of” black wetsuits, I look at them, having one “a bit too long peek”. But once it’s done I must be straight and just look at them for a short moment, since otherwise my escaping glance would alarm them, surely.
 
-Now when I look at the men, being only about ten meters from them, my ringing bells start banging, banging hard. The signs what I see are worse that I was expecting. As long as I had an excuse on my mind that “everything is fine”, I felt a bit more released and relaxed.
+Now when I look at the men, being only about ten meters away from them, my ringing bells start banging, banging hard. The signs I see are worse than I was expecting. As long as I had an excuse in my mind that “everything is fine”, I felt a bit more released and relaxed.
 
 But now, that seriousness…?
 The signs I see now… 
 
 When seeing their burning hot staring eyes, firm strict and unsmiling faces, frozen posture, stiffness, alertness… Black bags on the sand in front of them…
 
-I know as surely as anything can be that something is badly wrong with these guys.
+I know as surely as anything can be, that something is badly wrong with these guys.
 
-And at the very same moment, one of them is staring at me, our eyes hit each others.
+And at the very same moment, one of them is staring at me, our eyes hit each other.
 And at the very same blink of an eye, we, in one tenth of a second, we both realize the same disturbing thing. 
 
-Our common understanding is admirable, our eyes stick into each other, his anger and kind of sudden surprised flash realization, meets my determination, straight forward look, craziness of preparedness of action.
+Our common understanding is admirable, our eyes stick onto each other, his anger and kind of sudden surprised flash of realization, meets my determination, straight forward look, crazy of preparedness for action.
 
-At the very same moment we both realize what we are, what we are facing in each other, and also both knowing that what is going to happen next.
+At the very same moment we both realize what we are, what we are facing in each other, and also both knowing what is going to happen next.
 
-Only one practical word flashes red bells on my mind, “fuck”.
+Only one practical word flashes red bells in my mind, “fuck”.
 And then things, reality check kind of facts, are flashing on my mind…
 
 I made my choice. I would have walked away, but instead of doing so my decision was to “check”. And now there is only one option left, it’s to bear the consequences.
@@ -252,13 +252,13 @@ I’m now only five meters away, still heading to pass by them. But this one guy
 
 I jump forward, as fast as my old trained limbs can transport my body.
 
-The guy whose eyes I met, rips his bag open, three other guys crab their bags, take rapid step away, going to deploy further from the one which alerted them. They all start reaching something from inside their bags, all at the same time.
+The guy whose eyes I met, rips his bag open, three other guys grab their bags, take a rapid step away, going to deploy further from the one which alerted them. They all start reaching for something from inside their bags, all at the same time.
 
-I’m registering their movements, but this one guy is a few seconds ahead of all the others. He is my severest threat now, clearly. I’m unarmed, and for sure he’s reaching some hardcore black metal from his bag, groping it just right now.
+I’m registering their movements, but this one guy is a few seconds ahead of all the others. He is my severest threat now, clearly. I’m unarmed, and for sure he’s reaching some hardcore black metal from his bag, grabbing it just right now.
 
-I’m only two meters away and I see it. This idiot has got a machine gun, pulling it out from his bag as fast as he can, apparently going to point it on me, kill me.
+I’m only two meters away and I see it. This idiot has got a machine gun, pulling it out from his bag as fast as he can, apparently going to point it on me, and kill me.
 
-And in a very same moment I realize that this is the most factual truth happening now. I’ve seen it many times, but now it’s in a completely wrong place I think. And as thinking of it, it only makes my determination stronger, bursting adrenaline, filling the blood with it, every cell.
+And at the very same moment I realize that this is the most factual truth happening now. I’ve seen it many times, but now it’s in a completely wrong place I think. And while thinking of it, it only makes my determination stronger, bursting adrenaline, filling the blood with it, every cell.
 
 And as that happens, I’m only the follower of my own mind and body, when the instincts take action. Clear thinking and consideration are wiped out and there are only well trained reactions left.
 
@@ -267,11 +267,11 @@ Also, I kind of thank him, as he is reaching up, lifting his body rapidly into t
 
 Instead of dropping down on his knees, and just shooting at me from the best ever position, he is using the most valuable second for standing up, at the same time as I’m just about to reach him.
 
-I’m also thanking that this idiot has got a machine gun. If he had a pistol I would be dead already, but “luckily” he got “only” a machine gun. It’s good for possible maximal bloodshed but bad for the close combat situations.
+I’m also thankful that this idiot has a machine gun. If he had a pistol I would be dead already, but “luckily” he “only” had a machine gun. It’s good for possible maximal bloodshed but bad for the close combat situations.
 
-I see his victorious smile as he prepares to pull the trigger. I realize it, even though it’s only my reactions on charge now, regarding to anything happening.
+I see his victorious smile as he prepares to pull the trigger. I realize it, even though it’s only my reactions in charge now, regarding anything happening.
 
-His smirk flashes on my eyes, victorious sureness of killing me, his finger squeezing the trigger now, me going to be killed.
+His smirk flashes my eyes, victorious sureness of killing me, his finger squeezing the trigger now, me going to be killed.
 
 I hit the gun barrel wiping it aside to the right, slightly down, his gun now bursting out flares, bullets hitting the sand.
 
