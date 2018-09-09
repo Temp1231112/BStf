@@ -3111,17 +3111,17 @@ I laugh at her, but her face is looking at me so seriously, that I just take the
 
     - Okay, as you wish my sweetheart.
 
-Then I take the position, standing shooting position, as the task is going to be easy. I let the dust bloom to settle a little, look through the scope, and when the helicopter appears to be seen, I shoot. At first once, and then once again, two sharp little knocks into the back rotor, causing a little malfunction there.
+Then I take position, a standing shooting position, as the task is going to be easy. I let the dust bloom settle a little, look through the scope, and when the helicopter appears to be seen, I shoot. At first once, and then once again, two sharp little knocks into the back rotor, causing a little malfunction there.
 
-The helicopter is now starting to roll around as the back rotor is failing, and it starts to fall down. But as the fact is that the helicopters come neatly down as long as the main rotor is able to rotate, even in idling mode, it kind of braking the down the speed of falling, it’s going to be all okay for them, and they will land relatively smoothly.
+The helicopter is now starting to roll around as the back rotor is failing, and it starts to fall down. But as the fact is that helicopters come neatly down as long as the main rotor is able to rotate, even in idling mode, it kind of breaking down the speed of falling, it’s going to be all okay for them, and they will land relatively smoothly.
 
-Now following the helicopter’s way down, but just shortly, as Rosa says:
+Now following the helicopter’s way down, Rosa says:
 
     - Thanks, well done!
     - It’s good to get rid of the news.
     - Let’s go!
 
-At the same time she is slamming the back hood down. We both go back to the car, and even before I have properly sat down on the seat and closed the door, she already hits the gas onto the bottom.
+At the same time she is slamming the back hood down. We both go back to the car, and even before I have properly sat down on the seat and closed the door, she already hits the gas into the bottom.
 
 The race continues.
 
@@ -3147,31 +3147,31 @@ CHAPTER 22
 
 We have been driving, or actually rally driving, through the endless dirt roads, lifting up a massive dust bloom behind us. 
 
-We have come about 35 kilometers already, at first by her piloting. She was driving all the time as crazy… yes, I have to say crazy. That woman is much, much better driver than I knew. She is in a champion class, and that’s my honest opinion.
+We have come about 35 kilometers already, at first by her piloting. She was driving all the time like crazy… yes, I have to say crazy. That woman is a much, much better driver than I knew. She is in a champion class, and that’s my honest opinion.
 
-Then we changed after she had been enjoying these curvy roads about 25 kilometers. She suddenly stopped the car and said that it was enough for her, and that it was my turn.
+Then we changed after she had been enjoying these curvy roads for about 25 kilometers. She suddenly stopped the car and said that it was enough for her, and that it was my turn.
 
-But yes, rally driving is seriously hard job. It’s seriously dangerous, as in any moment, any second, the car can hit some rock or a bigger pump, and it can sling the car off from the road. And when it happens, the race has ended, that’s for sure.
+But yes, rally driving is a seriously hard job. It’s seriously dangerous, as at any moment, any second, the car can hit some rock or a bigger pump, and it can sling the car off from the road. And when it happens, the race has ended, that’s for sure.
 
-Here, on these sharply curving rocky roads, the destiny can come across any moment. And here it’s dangerous, very, very dangerous. All around… there are only rocks everywhere. And in addition to that there are big rocks, size of a truck, or on the other hand canyons, tens of meters down.
+Here, on these sharply curving rocky roads, one can come across destiny any moment. And here it’s dangerous, very, very dangerous. All around… there are only rocks everywhere. And in addition to that there are big rocks, the size of trucks, or on the other hand canyons, tens of meters down.
 
-The security barricades are only installed for the main roads, and the last one we saw, very close by, was when we exited from the motorway. Here, it’s all about rocks, and bigger rock, and on the other hand canyons.
+The security barricades are only installed for the main roads, and the last one we saw, very close by, was when we exited from the motorway. Here, it’s all about rocks, and bigger rocks, and on the other hand canyons.
 
-The speed in these narrow dirt roads is normally from as slow as 25 to 50 km an hour as maximum, but it depends on who’s driving. But now our speed has been overly too high, from 40 to 200 km an hour. 
+The speed in these narrow dirt roads is normally from as slow as 25 to 50 km an hour as maximum, but it depends on who’s driving. But now our speed has been way too high, from 40 to 200 km an hour. 
 
-Yes, the car is still reaching up to 200 km, especially now when I’m driving. When there is a bit longer straight on, I’ll take everything I can from this little fancy Mercedes SLK, and we are flying.
+Yes, the car is still reaching up to 200 km, especially now when I’m driving. When there is a bit longer straight road, I’ll take everything I can from this little fancy Mercedes SLK, and we are flying.
 
 Yes, practically, we are flying too. I love jumps and here it’s about constant. The longest jumps are from ten to fifteen meters. I have done much longer than that, but it was back then when driving the rally cars. Those cars are made for it and with them you can make big maneuvers.
 
 This Mercedes is brilliant!
 
-Even though it’s wrong-side driven, so called “English version”, which was a bit odd at first for a rally driving. But then when I got used to it I started to really enjoy of it. 
+Even though it’s wrong-side driven, a so called “English version”, which was a bit odd at first for rally driving. But then when I got used to it I started to really enjoy it. 
 
-This little fancy car has got lot of power and it’s fast. It’s very light and the power in the motor is throwing the car almost as fast as you can make it here. It’s also about perfectly balanced and thus ideal for this. 
+This little fancy car has got a lot of power and it’s fast. It’s very light and the power in the motor is throwing the car almost as fast as you can make it here. It’s also about perfectly balanced and thus ideal for this. 
 
 Yes, it is ideal for this, I love it!
 
-I absolutely love it. And it makes me smiling.
+I absolutely love it. And it makes me smile.
 
 I love rally driving and I used to do it a lot. And in this case “a lot” means full rough days, twelve hours a day and seven days a week. And as thinking of that time, I must say that it was just great, unbelievably great.
 
@@ -3179,23 +3179,23 @@ Rally driving is so adrenaline filling, especially when in a situation like this
 
 And yes, I must admit, that’s exactly what I used to do. Driving on the normal roads, the best ever, even at night, for hours and hours, in a way exploring them through with the highest possible speed…
 
-But, luckily, must say luckily, even though I destroyed bunch of cars, actually, honestly, a bit too many of them… I’m still alive. There were so many close-by calls, it all about being within milliseconds, so narrowly close. And it is truly unbelievable that anything worse than some bruises or slightly fractured bones ever happened.
+But, luckily, must say luckily, even though I destroyed a bunch of cars, actually, honestly, a bit too many of them… I’m still alive. There were so many close-by calls, it always being about within milliseconds, so narrowly close. And it is truly unbelievable that nothing worse than some bruises or slightly fractured bones ever happened.
 
-With this current speed, in this environment, on these rocky roads, especially regarding to the sharp sudden cliffs and canyons just beside the road… Any moment can be last.
+With this current speed, in this environment, on these rocky roads, especially regarding the sharp sudden cliffs and canyons just beside the road… Any moment can be the last.
 
-But, I’m well in control. 
+But, I’m well, in control. 
 At least I think I am...
 
 And I got my crazy laugh, adrenaline doped laugh, one of the best laughs for a long time, just about a moment ago. It was so great, the highest speed you can ever reach here, sliding the car on the rocky road, along the canyon on the right side… It truly made me laugh.
 
-But then, there was a command from the left side, a person sitting on a passenger’s seat, commanding that “slow down”.
+But then, there was a command from the left side, a person sitting on a passenger’s seat, commanding that I “slow down”.
 
 And now, there comes another command:
 
     - Slow down!
     - You are enjoying it too much.
 
-As commanded, I lift the gas pedal, but to be honest, just a very little. But then she adds:
+As commanded, I lift the gas pedal, but to be honest, just very little. But then she adds:
 
     - I mean seriously, slow down.
     - It’s time to take it easy.
@@ -3206,7 +3206,7 @@ As commanded, I lift the gas pedal, but to be honest, just a very little. But th
 
 Okay, okay, I think, and I slow down.
 
-Now, after about 20 minutes, looking from the mirrors, almost dust free track behind us, I’m driving only about 35 km an hour. And the speed, this low speed, feels like we are walking. Almost like would make it by walking faster. But that’s a very common delusion which sometimes comes straight after the high speed drive for a bit longer time.
+Now, after about 20 minutes, looking from the mirrors, an almost dust free track behind us, I’m driving only about 35 km an hour. And the speed, this low speed, feels like we are walking. Almost like walking would be faster. But that’s a very common delusion which sometimes comes straight after high speed driving for a bit longer time.
 
 Now she says:
 
@@ -3226,7 +3226,7 @@ I’m now a bit impatient and I ask again:
 
     - Where are we going?
 
-She looks still ahead and says:
+She still looks ahead and says:
 
     - It’s a Finca, a house. 
     - Abandoned, mostly…
@@ -3237,18 +3237,18 @@ She looks still ahead and says:
 
 Aah, I understand, that’s exactly what we need now, I think.
 
-Now following the road slowly, carefully preventing from making any dust behind us, just in case there is a search helicopter looking for us, or someone around somewhere on the mountain hills.
+Now following the road slowly, carefully preventing myself from making any dust behind us, just in case there is a search helicopter looking for us, or someone around somewhere on the mountain hills.
 
-We come to the gate, and I have to stop. She goes to open it, and I drive in. Then she closes the gate. And wen she sits down back on his seat she says:
+We come to the gate, and I have to stop. She goes to open it, and I drive in. Then she closes the gate. And when she sits back down on his seat she says:
 
     - The house is about a kilometer from here, just follow the road.
-    - A friend owns the place, all what you can see around. 
+    - A friend owns the place, all of what you can see around. 
 
-Yep, it’s always “A Friend”, I think.
+Yep, it’s always “a friend”, I think.
 
-Now following the road, a very narrow road, right about one kilometer, and we are arriving into the large yard of a rocky house.
+Now following the road, a very narrow road, right about one kilometer, we are arrive into the large yard of a rocky house.
 
-It looks definitely like abandoned. And to be honest, it looks like it has been abandoned maybe about hundred years ago. For sure it is “the most remote place” in Europe and it’s been so for a long, long time. I must ask here, a bit jokingly:
+It looks definitely like abandoned. And to be honest, it looks like it has been abandoned maybe about a hundred years ago. For sure it is “the most remote place” in Europe and it’s been so for a long, long time. I must ask here, a bit jokingly:
 
     - It looks like it has been abandoned decades ago, or maybe a couple of centuries, seriously…?
     - Are you sure that there are “some supplies” here?
@@ -3269,7 +3269,7 @@ As looking at the house and its surrounding, dry rocky landscape, just rocks eve
     - There might be many lives taken and bodies buried here.
     - Are you sure that this is the right place?
 
-She only nods and goes a few meters away, turning a little one rock, and comes back with the key. Yep, now I believe that she got the right place I think. I ask her:
+She only nods and goes a few meters away, turning one little rock, and comes back with the key. Yep, now I believe that she got the right place I think. I ask her:
 
     - How do you know this place?
     - Have you been here before?
@@ -3283,30 +3283,30 @@ Okay, I think. Now she opens very old wooden shutters letting some light in. And
 
     - Go back there and you’ll find a generator, so start it.
     - There are big batteries as well and we’ll have to recharge them anyway.
-    - I switch the electricity on.
+    - I'll switch the electricity on.
 
-At the same time when giving me new commands she goes to a room on the left side from the entrance. At the same time I’m going towards the door in the back of the large entrance salon, and I open the door. And only a little moment after the light pulp hanging from the roof in the middle of the room comes on, giving a dim light.
+At the same time when giving me new commands she goes to a room on the left side from the entrance. At the same time I’m going towards the door in the back of the large entrance salon, and I open the door. And only a little moment after, the light pulp hanging from the roof in the middle of the room comes on, giving a dim light.
 
-The batteries I think. Then I see another door, and I open it. I’ll come to the little utility space which is actually kind of an outside space. And I find the generator.
+The batteries, I think. Then I see another door, and I open it. I’ll come to the little utility space which is actually kind of an outside space. And I find the generator.
 
-When I’ve got the generator on I go back to the saloon, and I see her taking something from the cupboards. I ask her:
+When I’ve got the generator on I go back to the salon, and I see her taking something from the cupboards. I ask her:
 
     - So, what are we doing now?
 
-She has got some food cans on her hands, putting them on the desk, now switching on the gas stove, replying:
+She has got some food cans in her hands, putting them on the desk, now switching on the gas stove, replying:
 
     - Have a seat and take it easy.
-    - At first I’ll cook something to eat for us, and then we’ll see.
-    - We’ll have to contact to the center.
-    - They are wondering that what has happened as we were supposed to go to meet them in Granada.
+    - At first I’ll cook something for us to eat, and then we’ll see.
+    - We’ll have to contact the center.
+    - They are wondering what has happened, as we were supposed to go meet them in Granada.
     - But possibly they have seen us in the news anyway, so they may suppose that I’ll bring us here.
-    - But we’ll have to confirm it and get some orders that what to do next.
+    - But we’ll have to confirm it and get some orders on what to do next.
 
 Yep, I know the procedure. 
 
 Now sitting down, thinking, that this has been such a massive blow into my peaceful retirement. All of a sudden, running from the death to death, so yes, for sure, maybe it’s time to take it easy for a little while. Wait for a little while and then eat, properly.
 
-But will see how long that easy ride will continue, I think…
+But we'll see how long that easy ride will continue, I think…
 
 
 
@@ -3340,61 +3340,61 @@ It’s a weird feeling…
 
 Now sitting on the chair next to the table, eating, taking it easy, also relaxing…
 
-But all the time thinking that what’s next?
+But all the time thinking, what’s next?
 Where it comes from, the next attack?
 
-And even though, I have a huge confidence that whatever it is, I will solve the thing…
+And even though, I have huge confidence that whatever it is, I will solve the thing…
 It’s all the time on, the pressure, preparedness, ears ready to spot any differentiating noise or the smallest sign of anything…
 
 That’s what it is, being under the constant pressure, in a situation like that, action, tense present, all the time on alertness.
 
 But, that’s what it is. And I’m used to it. It’s my profession to manage it. Or, actually, it was my profession before I quit, and retired.
 
-Now, when suddenly forcefully pulled back to the service, even though very unofficially now, most of those “things”, certain vide range hardcore abilities” are taking place, being to come back as an automated behavior. It’s all familiar mind-setting from the past, and in a way it feels good to be back.
+Now, when suddenly forcefully pulled back into service, even though very unofficially now, most of those “things”, certain wide range "hardcore abilities” are taking place, beginning to come back as an automated behavior. It’s all familiar mind-setting from the past, and in a way it feels good to be back.
 
-The “thing” is getting normal again.
+The “thing” is becoming normal again.
 
-But this time it’s different. I was retired, fully retired, forgotten all that, the whole thing, emptied my mind and memory. I was being relaxed, enjoying the free time, permanent freeway, holidaying… 
+But this time it’s different. I was retired, fully retired, I'd forgotten all that, the whole thing, emptied my mind and memory. I was being relaxed, enjoying the free time, permanent free-way, holidaying… 
 
-But, then, being fully innocent bystander, I was dragged back to the “thing”… And sudden action, instinctive reaction, took place. And everything happened, so unbelievably sudden, automatically, without me being actually in charge of anything much… 
+But, then, being a fully innocent bystander, I was dragged back into the “thing”… And sudden action, instinctive reaction, took place. And everything happened, so unbelievably suddenly, automatically, without me being actually in charge of anything much… 
 
-And then more and more followed, I took it all in a rush of survival, high-speed escape for the next… “shit”.
+And then more and more followed, I took it all in a rush of survival, high-speed escapes for the next… “shits”.
 
-Yep, that’s what it is, “shitty thing” to be honest. It’s one of a hell of a big shit!
+Yep, that’s what it is, “a shitty thing” to be honest. It’s one hell of a big shit!
 
-But now, being here, contacted to the “guys”, being “picked up”, then “taken in” and now “back in service”… even though in practice, forcefully… Yeah, in a way it’s great.
+But now, being here, having contacted the “guys”, being “picked up”, then “taken in” and now “back in service”… even though in practice, forcefully… Yeah, in a way it’s great.
 
-Funny thing, but when being here now, even though it has been unbelievably rough rocky route the get here, I’m feeling calm. Despite of the fact that there is a constant threat, constant danger, constant possibility that the next attack comes in any moment, sudden change, possibly blowing up the whole thing into a full action again.
+Funny thing, but when being here now, even though it has been a unbelievably rough rocky route to get here, I’m feeling calm. Despite the fact that there is a constant threat, constant danger, constant possibility that the next attack comes at any moment, sudden change, possibly blowing up the whole thing into full action again.
 
 Yep, it’s about being calm. There is a certain calmness which takes place, and all those kind of normal feelings have disappeared. It’s what being in action is. You stay focused, with well experienced calmness, and you are ready all the time. It’s part of the business, risky business. Any moment can be the last.
 
-But, even though all the facts are harsh, deathly harsh, you are relaxing, joking, even enjoying and having fun. You mind is calm, in a kind of trance, in the situation of transaction. It’s your business and you do what you have to do.
+But, even though all the facts are harsh, deadly harsh, you are relaxing, joking, even enjoying and having fun. Your mind is calm, in a kind of trance, in the situation of transaction. It’s your business and you do what you have to do.
 
-So, now, when eating Rosa’s wonderful cooking, magically created form the canned food, looking at her on the other side of the table, a stunning beautiful woman, eating without any hurry, or worry…
+So, now, when eating Rosa’s wonderful cooking, magically created from the canned food, looking at her on the other side of the table, a stunning beautiful woman, eating without any hurry, or worry…
 
 I must say, it’s great to be back!
 
-I’m looking at her. She is the “one in charge” here, still being in ranks, part of the command chain. And as I’m just a bystander here, I’m asking from her:
+I’m looking at her. She is the “one in charge” here, still being in ranks, part of the command chain. And as I’m just a bystander here, I’m asking her:
 
     - What’s next?
-    - Should we make a contact?
+    - Should we make contact?
     - And what is the plan?
 
 At first she is quiet, finishing her portion, but then after a few minutes she replies:
 
     - Yep, that’s what we’ll do next.
-    - We’ll use the satellite phone, as it is secured, coded, and impossible to them to break.
+    - We’ll use the satellite phone, as it is secured, coded, and impossible for them to break.
     - So, let’s see what they have got.
 
 She takes the phone, pushes the button, only one and only one time, the dial button, and waits a little while.
 
-She pushes another button, a speaker at this time that I can hear everything too, and in about ten seconds someone answers:
+She pushes another button, on speaker this time so that I can hear everything too, and in about ten seconds someone answers:
 
-    - How’s it doing?
+    - How’s it going?
 
 She smiles and answers:
 
-    - Great, just got food, being satisfied, and now waiting for introduction.
+    - Great, just got food, being satisfied, and now waiting for instruction.
     - Do you have a plan?
     - At least you have had time while we have been trying to save our skin.
 
@@ -3405,16 +3405,16 @@ The man’s voice on the phone is quiet for a moment, but then it says:
 
 I laugh at his “cliché”. And Rosa replies:
 
-    - Give bad first.
+    - Give the bad first.
 
 The man’s voice says:
 
     - Okay, here the best part of it…
     - They are some mercenaries, terrorists of course, but mercenaries.
     - And they seem to have almost unlimited resources and the best ability to track down almost anything, and to attack rapidly anywhere they like.
-    - And they have serious firepower, apparently lots on men, about everywhere in Spain, and obviously in the world.
+    - And they have serious firepower, apparently lots of men, about everywhere in Spain, and obviously in the world.
     - It seems that there is some massive secret mission ongoing there.
-    - And the fact is that we are completely out, unable to know who they are, where they come from, what are their plans… or almost anything at all.
+    - And the fact is that we are completely out, unable to know who they are, where they come from, what their plans are… or almost anything at all.
     - So practically, we are the ones running in the darkness, and it’s just a guessing game on our part.
     - To be honest, we have a losing hand here, and they have all the best cards.
 
@@ -3425,11 +3425,13 @@ Rosa says to the phone:
 
 There is a little pause on the other end of the line, but then the man answers:
 
-    - Well, we got the best bite in the game.
+    - Well, we got the best bait in the game.
 
-    - Oh, great, I say, interrupting.
+    - Oh, great 
 
-It just comes out from my mouth when realizing that all what they got is a bite, human flesh, and that’s my flesh that…
+I say, interrupting.
+
+It just comes out from my mouth when realizing that all they got is a bait, human flesh, and that’s my flesh…
 
 And, on top of that, Rosa says:
 
@@ -3437,22 +3439,22 @@ And, on top of that, Rosa says:
     - What’s the plan?
 
 That’s cool, I mean bloody cold, I think.
-Even though understanding the situation, but?
+Even though understanding the situation, but really?
 
-They are squeezing me into a hook, punching it through my body, just like a piece of bite for fishing, for a big fish...
+They are squeezing me into a hook, punching it through my body, just like a piece of bait for fishing, for a big fish...
 
-And she is ready to use me as a bite, to be killed once again? So, what is that I would ask…? Love perhaps?
+And she is ready to use me as a bait, to be killed once again? So, what is that I would ask…? Love perhaps?
 
-But, that’s what it is. It’s the reality here, I’m the best bite. And even though it’s far from normal to use one of your own as bite, it actually happens all the time.
+But, that’s what it is. It’s the reality here, I’m the best bait. And even though it’s far from normal to use one of your own as bait, it actually happens all the time.
 
-Actually, all of the persons on the field are in a way bites for an opponent, and it’s just about that who is in what role, and that how will you handle the situations when confronting the foe. Who comes out as a winner.
+Actually, all of the people on the field are in a way baits for an opponent, and it’s just about who is in what role, and how you will handle the situations when confronting the foe. Who comes out as a winner.
 
 So, here we are. And I ask before Rosa does:
 
     - So, what’s the plan?
     - How will we do it?
 
-The man replies now instantly:
+The man now instantly replies:
 
     - We’ll contact you a bit later.
     - Have a rest and recover your powers, you’ll need them.
@@ -3464,15 +3466,15 @@ Rosa replies:
 
     - All clear, we’ll prepare, be ready.
 
-And she adds smiling:
+And she adds smilingly:
 
     - And we’ll rest properly.
 
 Then the she shuts down the connection.
 
-We are looking at each other with Rosa. At first with serious faces, but only for a little moment, and then we start laughing. And just after the first heartwarming unavoidable burst of laughs she says:
+We are looking at each other with Rosa. At first with serious faces, but only for a little moment, and then we start laughing. And just after the first heartwarming unavoidable burst of laughs, she says:
 
-    - And was that the “good” news?
+    - And what was the “good” news?
     - Did I miss something?
 
 
@@ -3514,22 +3516,22 @@ And as thinking of it, within tens of kilometers of radius, this place is maybe 
 I say and ask:
 
     - Wow!
-    - Which you like more, a 4x4 or a van?
+    - Which do you like more, a 4x4 or a van?
     - Which are we going to take?
 
-There are two options in the garage, an old small 4x4 Mitsubishi Pajero, and a very old looking Mercedes 508 van, big van, kind of a green army van.
+There are two options in the garage, an old small 4x4 Mitsubishi Pajero, and a very old looking Mercedes 508 van, a big van, kind of a green army van.
 
-I know them both as I have had one of each in the past. Both are good on its particular ways. Both are very good options for certain things, and it’s just depends on what is the need, for what are you going to use it.
+I know them both as I have had one of each in the past. Both are good in their own particular ways. Both are very good options for certain things, and it just depends on what the need is, for what you are going to use it.
 
-In a case we’ll have to escape from here, over the desert and mountainous landscape, go off-road, drive past the pathless paths, the Pajero is best for that.
+In case we’ll have to escape from here, over the desert and mountainous landscape, go off-road, drive past the pathless paths, the Pajero is best for that.
 
-In a case we’ll have time, we possibly have to camp on the way, wherever it takes us, or we need some additional resources with us, the van is absolutely the best.
+In case we’ll have time, we possibly have to camp on the way, wherever it takes us, or we need some additional resources with us, the van is absolutely the best.
 
-And common with both cars is that they have got the simplest technical characteristics, old, with total lack of additional electronics, or anything which can fail anytime. And the fact that about everything in these cars can be fixed on the road, makes them maybe the most reliable survival type of vehicles. And they can be stored for years still always working anytime when needed…
+Whats in common with both cars is that they have the simplest technical characteristics, old, with a total lack of additional electronics, or anything which can fail anytime. And the fact that about everything in these cars can be fixed on the road, makes them maybe the most reliable survival type of vehicles. And they can be stored for years and still always work anytime when needed…
 
 So, yeah, very good choices I must say.
 
-Rosa is already checking the van, opening the driver’s door and stepping in. She takes the key from below the dashboard, opens the motor cover which is in the middle of the driver’s cabin, connects the battery cable looking like mechanic, pushes the gas pedal in to the bottom a few times, and turns the key…
+Rosa is already checking the van, opening the driver’s door and stepping in. She takes the key from below the dashboard, opens the motor cover which is in the middle of the driver’s cabin, connects the battery cable looking like a mechanic, pushes the gas pedal into the bottom a few times, and turns the key…
 
 The motor is trying, but she needs another try, and then the motor starts, at first a bit hesitantly, but now running steadily. 
 
@@ -3547,13 +3549,13 @@ I do what she says, going to go to do it. But she laughs at me and says:
 
 Okay, I admit, I was actually going to “kick the wheels” as I thought that she wants me to check them. But now, when looking at the wheels when she is driving the van out, I can see them all being fine.
 
-Next I drive the SLK in to the garage, and disconnect the battery cable. And then as commanded, I close the doors. at the same time when she drives the van into the front of the front door, and stops there letting the motor run, warming it up. And when the garage door is well locked, looking as abandoned as it was, even with the rusted iron scrap put back in its place in front of the door, I’m going to there as well.
+Next I drive the SLK into the garage, and disconnect the battery cable. And then as commanded, I close the doors. At the same time when she drives the van into the front of the front door, and stops there letting the motor run, warming it up. When the garage door is well locked, looking as abandoned as it was, even with the rusted iron scrap put back in its place in front of the door, I’m going there as well.
 
-We put our backpacks in, me having still the one I robbed from the terrorists, or whatever mercenaries they are, and she throwing in hers. Then we’ll shut down the place, close the doors of the house, make sure that everything is exactly like it was, with double check one detail at the time.
+We put our backpacks in, me still having the one I robbed from the terrorists, or whatever mercenaries they are, and her throwing in hers. Then we’ll shut down the place, close the doors of the house, make sure that everything is exactly like it was, with a double check on details.
 
-And then we’ll jump into the van, she on the driver’s seat, and me onto the passenger’s. The doggy takes the place in the middle on the top of the motor’s cover. Slamming the doors closed, she putting on the first gear, going to go.
+And then we’ll jump into the van, her on the driver’s seat, and me onto the passenger’s. The doggy takes the place in the middle on top of the motor’s cover. Slamming the doors closed, her putting on the first gear, getting to go.
 
-I lift my feet on the top of the dashboard, take the most comfortable position possible, at the same time when she starts driving a very narrow rocky road. Then I ask:
+I lift my feet on top of the dashboard, take the most comfortable position possible, at the same time when she starts driving down a very narrow rocky road, I ask:
 
     - Why did you choose this van?
 
@@ -3564,84 +3566,86 @@ Her reply is short:
 While she is driving, I start thinking…
 And I’m actually feeling tired, very…
 It has been so unbelievably tiresome…
-She promised to the man in a command center that we’ll rest, have a proper rest…
+She promised the man in the command center that we’ll rest, have a proper rest…
 
-But I must say that the night was gorgeous, absolutely gorgeous, but far from rest.
+I must say that the night was gorgeous, absolutely gorgeous, but far from resting.
 
 And even though I would have needed a good rest and recovery, seriously, I must say that I’m completely okay with it.
 
-Then some more serious thoughts are pouring into my mind. In addition to that what has already happened, I’m also pondering the option is that what is going to happen. And I start thinking of the orders which we got when the center contacted us last night.
+Then some more serious thoughts are pouring into my mind. In addition to what has already happened, I’m also pondering the option of what is going to happen. And I start thinking of the orders which we got when the center contacted us last night.
 
 It was actually very simple…
 
 We’ll have to go to Malaga. 
-We’ll have to “reveal” ourselves by making unsecured connection.
-We’ll also “reveal” that we’ll go to the port of Malaga, to the certain “meeting” point.
+We’ll have to “reveal” ourselves by making an unsecured connection.
+We’ll also “reveal” that we’ll go to the port of Malaga, to a certain “meeting” point.
 
-And then we’ll hope the best…
+And then we’ll hope for the best…
 
 It’s morning, so we have enough time to get there. The “meeting” in the harbor is going to be at 2am at night. They have chosen it to happen after midnight, 02.00 being a zero point, the most crucial moment when the “last man standing” events are going to start.
 
-The most unpredictable factor will be that how much men and firepower the enemy, the mercenaries are going to deploy there. And of course, that will they “bite the bite”.
+The most unpredictable factor will be how many men and firepower the enemy, the mercenaries are going to deploy there. And of course, that will they “bite the bait”.
 
 Until then, it’s going to be easy, I hope.
 
-And now, when looking at Rosa, remembering the last night, the night of “maximal relaxation” I ask her:
+And now, when looking at Rosa, remembering last night, the night of “maximal relaxation” I ask her:
 
     - Where next?
     - Where are we going to go?
     - It’s 8am at the moment, so we’ve got a lot of time, about 18 hours.
 
-She seems to have a plan I see as she replies:
+She seems to have a plan, I see, as she replies:
 
     - Let’s go to have a proper dinner, big beefs at Plaza Mayor. 
     - Do you still remember the last time?
 
 And she is smiling at me, looking like she told the best joke ever.
 
-    - Yes, I do, I say.
+    - Yes, I do
+
+I say.
 
 And as thinking of it now, for sure I do…
 
-I well do. And the last time we went there, was a very similar to this. We were “kind of” on a mission, being prepared to be deployed any time, but just spending the time together and enjoying a little holiday, just a few days offline, before the next task. 
+I do, well. And the last time we went there, was in a very similar situation to this. We were “kind of” on a mission, being prepared to be deployed any time, but just spending time together and enjoying a little holiday, just a few days offline, before the next task. 
 
-We fell in love back then, or I think we did. At least a lot of things between us happened, even though shortly, in a way momentarily, but there was a strong bond between us, thin bond but strong.
+We fell in love back then, or I think we did. At least a lot of things between us happened, even though only shortly, in a way momentarily, but there was a strong bond between us, thin bond but strong.
 
-It felt like a beginning of something great back then, and it was a common feeling between the two of us. We were even talking about withdrawing from the missions, just as that’s what often happens when someone finds “a real thing” in their life.
+It felt like the beginning of something great back then, and it was a common feeling between the two of us. We were even talking about withdrawing from the missions, just as that’s what often happens when someone finds “a real thing” in their life.
 
-And it was almost going to happen to us too, well considered, pulling out, retiring, figuring out something else to do in our lives, something else than putting it in to a serious risk about all the time. 
+And it was almost going to happen to us too, well considered, pulling out, retiring, figuring out something else to do in our lives, something else than putting it into serious risk just about all the time. 
 
-And we were already considering it, our thoughts and feelings running the routes of love, something else than brains leading its way, irrationally, crazy plans of having children, and all that normal life… “thing”.
+And we were already considering it, our thoughts and feelings running the routes of love, something else than brains leading its way, irrationally, crazy plans of having children, and all that normal life… “stuff”.
 
-And yes, honestly, we were going to go to the restaurant at Plaza Mayor, in the great shopping center in Malaga, one of the biggest and the newest back then.
+And yes, honestly, we were going to go to the restaurant at Plaza Mayor, to the great shopping center in Malaga, one of the biggest and the newest back then.
 
-We were going to enjoy a meal, proper big beefs, in one of the best restaurants, in a wonderful Spanish Hacienda style shopping center, the whole place truly fitting well into our taste. And it was going to be one of the greatest nights in our lives. But…
+We were going to enjoy a meal, proper large beefs, in one of the best restaurants, in a wonderful Spanish Hacienda style shopping center, the whole place truly fitting well into our taste. And it was going to be one of the greatest nights of our lives. But…
 
-The last time was far from having a dinner, but indeed, it was a kind of a “big beef thing”, I would say so. At least it was a life-changing momentum in our lives.
+Last time was far from having a dinner, but indeed, it was a kind of a “big beef thing”, I would say so. At least it was a life-changing momentum in our lives.
 
 Back then, the meat which got bloody hammered, well grilled and seriously burned, was our meat, literally. It was our skin and our life which got turned upside down.
 
-We got ambushed there, all coming “from the bushes”, suddenly, unexpected, at the time when we were flying on the top of the highest point in our future expectations. 
+We got ambushed there, everyone coming “from the bushes”, suddenly, unexpected, at the time when we were flying on top of the highest point in our future expectations. 
 
-We got attacked, both shot at, and that was one of the closest calls of all times. And even though we both survived, we had to escape, only managing to do so, very narrowly.
+We got attacked, both shot at, and that was one of the closest calls of all time. And even though we both survived, we had to escape, only managing to do so, very narrowly.
 
-And, actually, that is the last moment together between us. We were pulled apart from each others, violently, a hardcore reality crushing all the rosy dreams we had emerged…
+And, actually, that is the last moment together between us. We were pulled apart from each other, violently, a hardcore reality crushing all the rosy dreams we had emerged…
 
-Yes, that’s when we have last seen, and since that it has taken long, long time. We have been running through different paths, until the very special moment, only a day ago, those paths came back together, at the beach.
+Yes, that’s when we have last seen each other, and since then it has taken a long, long time. We have been running through different paths, until the very special moment, only a day ago, those paths came back together, at the beach.
 
-As remembering, something liking my face after I had stranded from a very long swim, I look at the little dog, now standing on the motor’s cover, pads on the dashboard. A smart little Pomeranian is observing the road, ears up and alert. 
+As remembering it, something licking my face after I had stranded from a very long swim, I look at a little dog, now standing on the motor’s cover, pads on the dashboard. A smart little Pomeranian is observing the road, ears up and alert. 
 
 The dog looks so sharp that I would imagine him driving the van. 
 
 I’m petting him, and say:
 
     - Yes, I do remember.
-    - It was a rough beef back then.
+    - It was rough beef back then.
     - Hope it is different now.
 
-Yes, indeed, I hope that the thing will go by the plan, and that the trap we’ll set to the terrorists, or whatever mercenaries they are, will be a great success.
+Yes, indeed, I hope that the thing will go by plan, and that the trap we’ll set for the terrorists, or whatever mercenaries they are, will be a great success.
 
-But at the same time knowing, that in these “things” it rarely happens to happen by the plan, unexpected factors leading the way, I ask a question which comes to my mind, still petting a little dog:
+But at the same time knowing, that in these “situations” it rarely happens to happen by the plan, unexpected factors leading the way, I ask a question which comes to my mind, still petting the little dog:
 
     - Where are you going to put him?
 
@@ -3677,51 +3681,51 @@ CHAPTER 25
 
 Great!
 
-But, it’s funny thing, getting into this spot here now, was actually very exciting.
+But, it’s a funny thing, getting into this spot here now, was actually very exciting.
 
-Now when starting, my adrenaline level is already high, I’m feeling warm, like something is warming me up. The heart’s pumping rate is accelerated a little, my toes… yes, at this time toes, are tensed… And the mind is excited.
+Now when starting, my adrenaline level is already high, I’m feeling warm, like something is warming me up. The heart’s pumping rate is accelerated a little, my toes… yes, at this time my toes are tensed… And the mind is excited.
 
 Yep, I’m starting…
 
-The beef I got in front of me is amazing. It’s big, well done, properly grilled… Looking like the perfect fulfillment for me. I have been waiting for this beef here for a long, long time. I’ve been hoping for this happening… since the whole thing last failed.
+The beef I got in front of me is amazing. It’s big, well done, properly grilled… Looking like the perfect fulfillment for me. I have been waiting for this beef here for a long, long time. I’ve been hoping for this to happen… since the whole thing last failed.
 
-I have the best ever company, now taking the first bit of her beef. We are smiling, looking at each other as putting the piece of meat into the mouth, both at the same time.
+I have the best ever company, now taking the first bite of her beef. We are smiling, looking at each other as putting the piece of meat into our mouths, both at the same time.
 
-It makes us laughing. We are still looking at each other now cutting the next piece. And for sure, anyone seeing us would thing that we have just fallen in love.
+It makes laugh. We are still looking at each other now cutting the next piece. And for sure, anyone seeing us would think that we have just fallen in love.
 
-To be honest, coming here, was the most ever exciting go ever into the restaurant. We were both so excited that we were laughing at it and ridiculing ourselves.
+To be honest, coming here, was the most ever exciting go ever into a restaurant. We were both so excited that we were laughing at it and ridiculing ourselves.
 
-At the same time when she is giving a little piece of meat for the doggie, I’m thinking of arriving here. In practice, somehow as challenging the destiny, we did all exactly in the same way than the last time. The time which ended into a chaos, shootout, rifting apart from each other, and finally into a longtime separation… too long time…
+At the same time when she is giving a little piece of meat for the doggie, I’m thinking of how we arrived here. In practice, somehow like challenging destiny, we did all exactly in the same way as last time. The time which ended in chaos, a shootout, rifting us apart from each other, and finally into a longtime separation… too of a time…
 
-So, now, we parked the van into exactly the same spot. In a parking area where the large passenger planes, are landing to the Malaga’s airport, descending only a few tens of meters above you.
+So, now, we parked the van into exactly the same spot. In a parking area where the large passenger planes are landing into Malaga’s airport, descending only a few tens of meters above you.
 
 We waited until the next plane came, approaching, coming closer, and finally passing by very close above us, so close that it almost looks dangerous. Yes, of course, it’s completely harmless and safe, but they come very close, anyway.
 
 And then when we were walking into the restaurant, into the very same restaurant we were going to go last time. We were expecting something to happen, attackers to appear and the same horrible things to happen.
 
-But at this time, we were able to reach the restaurant, able to order the portion we wanted to have last time… And this time we also got the portion. And now, it’s maybe the sweetest and the most peaceful moment here, being very precious between us, ever. And the whole thing, excitement, makes us laugh.
+But this time, we were able to reach the restaurant, able to order the portion we wanted to have last time… And this time we also got the portion. And now, it’s maybe the sweetest and the most peaceful moment here, being very precious between between us, ever. And the whole thing, excitement, makes us laugh.
 
-Eating big beefs at the terrace, still laughing, when putting the third piece of meat into the mouth, again at the same time, looking at each other, smiling…
+Eating big beefs at the terrace, still laughing, when putting the third piece of meat into my mouth, again at the same time, looking at each other, smiling…
 
 There is a sudden gunfire burst towards us. And the best I can shout out loud is:
 
-“Shit!”
+    - Shit!
 
 Someone is attacking us, firing with the machine guns, and the second thing I say is:
 
-“Again?”
+    - Again?
 
 At the same time when scooting onto the floor, I see how Rosa does the same. She grabs the dog and jumps down to the floor, a few meters away from me. I grab the handgun under my belt, instinctively, and only a few seconds later I’m already responding to the gunfire.
 
-With the first three bullets I hit one attacker riding on a motocross bike, and he falls down the bike continuing its way towards us. But it crashes against the chairs and tables, stopping there about ten meters from us.
+With the first three bullets I hit one attacker riding on a motocross bike, and he falls down, the bike continuing its way towards us. But it crashes against the chairs and tables, stopping there about ten meters away from us.
 
-This is crazy, I think. They are attacking in the broad daylight, lots of people around, walking, eating, just enjoying…. And the attackers are putting everybody here into a life danger. There are tens of the people in this and the closest restaurants. Children, women, men… all are in a serious life threatening danger now.
+This is crazy, I think. They are attacking in the broad daylight, lots of people around, walking, eating, just enjoying…. And the attackers are putting everybody here into life danger. There are tens of the people in this and the closest restaurants. Children, women, men… are all in serious life threatening danger now.
 
-But when realizing that it might be actually what the mercenaries are doing on purpose, a case of another “terrorist attack”... And that they are possibly also targeting the people as well as us. And even though their primary target is to kill me, their idea, possibly, is to kill many others too… 
+But when realizing that it might actually be what the mercenaries are doing on purpose, a case of another “terrorist attack”... And that they are possibly also targeting the people as well as us. Even though their primary target is to kill me, their idea, possibly, is to kill many others too… 
 
 So, I think, that I’ll have to do something.
 
-It’s a massive chaos here, the people running and trying to find cover, trying to find some safe spot, or just trying to run away. Horrible screaming, 
+It’s a massive chaos here, the people running and trying to find cover, trying to find some safe spot, or just trying to run away. Horrible screaming. 
 
 Being unable to spot all the attackers, to even know how many they are, to make quick plans to react and respond, I yell to Rosa:
 
@@ -3729,11 +3733,11 @@ Being unable to spot all the attackers, to even know how many they are, to make 
     - Cover me up as well as you can!
     - I must go!
 
-And just a second after I have said what I said, I think about the fact, that the last time, the exact words were the last I said her.
+And just a second after I said what I said, I think about the fact, that last time, those were the exact words I told her last time.
 
-And as the consequences, all what then happened afterwards… It changed our lives, completely, I’ll crawl to her, despite the danger and the bullets hitting close. I give her a kiss and I say:
+And as the consequences, all that happened afterwards… It changed our lives, completely, I’ll crawl to her, despite the danger and the bullets hitting close. I give her a kiss and I say:
 
-    - We’ll see again, I promise.
+    - We’ll see each other again, I promise.
     - Come to the port if you can…
     - I’ll find you anyway.
 
@@ -3745,47 +3749,47 @@ Then I go. Shooting and running at the same time, towards the motocross bike, I 
 
 When he’s just about going to shoot me, I snap three bullets to him, one in the head and two in his chest. At the same time still running, I’m reaching the bike.
 
-I lift it up, noticing that the motor still running. I jump on it and turn the gas on full. The bike jumps forward, the back wheel skidding, now rifting. I’m now getting away, hoping that the attackers are following me as I’m their primary target anyway, and hoping that the people will be saved.
+I lift it up, noticing that the motor is still running. I jump on it and turn the gas on full. The bike jumps forward, the back wheel skidding, now rifting. I’m now getting away, hoping that the attackers are following me as I’m their primary target anyway, and hoping that the people will be saved.
 
 And yes, they are, indeed, except one. At the same time when heading off from the plaza of the Plaza Mayor, through the row of restaurants, dodging the tables and chairs. I peek backwards and I see two attackers on their bikes behind me, crashing through the restaurants too, shooting almost all the time.
 
 When I look at the restaurant where we were enjoying the beefs, just one last quick blink to there, I see one attacker being hit by the bullet from Rosa’s gun, the attacker swinging backwards and falling down. Well done I think, being sure that Rosa will finish him, just to prevent any additional chaos and damages, to end the terrorist attack.
 
-Now heading off through the walkways, with the highest speed I can ride with the bike, two or three attackers following me… Riding the bike through the corridors, passing by a huge movie center… 
+Now heading off through the walkways, with the highest speed I can ride the bike with, two or three attackers following me… Riding the bike through the corridors, passing by a huge movie center… 
 
-The one I’ve been to before and the one where we were going to go after the dinner. To watch perhaps some romantic movie, to have something different than the everyday action life we were living in.
+The one I’ve been to before and the one where we were going to go after the dinner. To perhaps watch some romantic movie, to have something different than the everyday action life we were living in.
 
 Now heading off away from the center…
 
 At the same time when trying to find the least crowded passage out from here, I’m thinking of how we made an unsecured connection with the center, about two hours ago, as it was by the plan. And as thinking of the fact that the attackers came so fast after us, and that they are seemingly prepared to do everything they can to kill me… It’s astounding.
 
-The ability they can act, terrifying brutality… and the disregard to anyone’s safety, towards the innocent people, that truly is stunningly astounding.
+The ability they can act with, terrifying brutality… and the disregard to anyone’s safety, towards the innocent people, that truly is stunningly astounding.
 
-But, on the other hand, they truly are the terrorists. They are the worst ever kind of criminals. Being mercenaries and doing all that what they are doing, being obviously paid by some instances, is as bad as the terrorism, blatant terrorism.
+But, on the other hand, they truly are the terrorists. They are the worst ever kind of criminals. Being mercenaries and doing all the things they are doing, being obviously paid by some instance, is as bad as terrorism, blatant terrorism.
 
-They are terrorists, paid terrorists! But their motive is the money instead of ideology or religion. Or it’s something else. Maybe they are serving somebody, something… something which is utterly rotten, criminal. And whatever it is, it’s the worst of a kind in the humanity, in the world.
+They are terrorists, paid terrorists! But their motive is the money instead of ideology or religion. Or it’s something else. Maybe they are serving somebody, something… something which is utterly rotten, criminal. And whatever it is, it’s the worst kind in humanity, in the world.
 
 Just right now I’m already outside and driving away from the Plaza Mayor, heading towards the exit from the car park area, and I notice at least two black minivans waiting for me there. They are blocking the way out.
 
 And also, I see that there is shooting on the parking area as well, for some reason, maybe to cause maximal chaos there too. And if that’s part of the attacker’s plan, it definitely works very well.
 
-There is a massive chaos everywhere.
+There is massive chaos everywhere.
 
-It makes me mad, wanting to kill them all. And it makes me so mad that I pull another gun from the holder, and I drive straight towards the two vans. I start shooting at them with both guns, one in each hand, continuously, with steady space.
+It makes me mad, making me want to kill them all. And it makes me so mad that I pull another gun from the holder, and I drive straight towards the two vans. I start shooting at them with both guns, one in each hand, continuously, with steady space.
 
-I know what I do, now riding both hands off the steering rod, shooting. I know what I do in all that what comes to shooting, and I’m also hitting the target I’m aiming at.
+I know what I do, now riding both hands off the steering rod, shooting. I know what I do always, when it comes to shooting, and I’m also hitting the target I’m aiming at.
 
-I see the windscreen smashing, one attacker being hit into the chest, and a few seconds after another into the head. Two down sends two others of them looking for cover behind the opened doors, but the rest are shooting at me in standing position.
+I see the windscreen smashing, one attacker being hit on the chest, and a few seconds after another into the head. Two down sends two others of them looking for cover behind the opened doors, but the rest are shooting at me in standing position.
 
-And as I’m shooting, I recognize the model of the vans being exactly the same which I used to have in America, in Florida when being there. And amazingly, at the same time as being able to feel sorry for the cars, the Dodge minivan model which I like a lot, I keep shooting and breaking them with the bullets, glasses smashing.
+And as I’m shooting, I recognize the model of the vans being exactly the same as which I used to have in America, in Florida when being there. And amazingly, at the same time as being able to feel sorry for the cars, the Dodge minivan model which I like a lot, I keep shooting and breaking them with the bullets, glasses smashing.
 
-But my purpose to pull their gunfire towards myself to save the lives of the innocent people, works very well. Only problem is that their bullets come over too close, now a couple of them peppering the front of the bike with nasty blink sounds.
+But my purpose to pull their gunfire towards myself to save the lives of the innocent people, works very well. The only problem is that their bullets come way too close, now a couple of them peppering the front of the bike with nasty ding sounds.
 
-It being sure that they’ll hit me too, it being only a matter of seconds, so I put the guns back under my belt. Now willing to get away, alive, I take a firm grip of the steering rod, and I turn to the left, now heading off from the road, towards the bushes.
+It being sure that they’ll hit me too, it being only a matter of seconds, I put the guns back under my belt. Now willing to get away, alive, I take a firm grip of the steering rod, and I turn to the left, now heading off from the road, towards the bushes.
 
 I’m crashing through the bushes, jumping with the bike a long leap, touching the ground again, and dodging the attacker’s vans with the highest speed possible, only about thirty meters from them.
 
-They are shooting at me all the time, kind of following my route with the constant fire, some bullets blinking to the bike, one scratching my leg… But I’m getting away.
+They are shooting at me all the time, kind of following my route with the constant fire, some bullets dinging onto the bike, one scratching my leg… But I’m getting away.
 
 
 
@@ -3812,17 +3816,17 @@ They are shooting at me all the time, kind of following my route with the consta
 CHAPTER 26
 
 
-I’ll come back to the road and turn the gas full, now accelerating fast. I look at backwards and I see them rushing into the cars. And immediately, they start turning them, obviously to follow me.
+I'm going back to the road and turning the gas to full, now accelerating fast. I look backwards and I see them rushing into the cars. And immediately, they start turning them, obviously to follow me.
 
 But the two vans are already a bit further back there, and the biggest threats are the two attackers on their motocross bikes behind me. They are now focusing on driving, trying to get closer to me. But I’ve got a different idea, thinking, that I must get rid of them.
 
 And, maybe the best way, is to test their driving skills. And I know where to run the test… 
 
-Only a couple of kilometers by the road, and we reach it. Driving with the highest speed I take a narrow dirt path, now heading off towards an old big Spanish horse ranch, then soon turning towards the wetland. It’s a huge reedy and muddy area, full of tall bulrushes and canes. And that’s going to be the place to test their driving skills.
+Only a couple of kilometers on the road, and we reach it. Driving with the highest speed I take a narrow dirt path, now heading off towards an old big Spanish horse ranch, then soon turning towards the wetland. It’s a huge reedy and muddy area, full of tall bulrushes and canes. And that’s going to be the place to test their driving skills.
 
 But when driving through the bulrushes, the muddy water splashing around and jetting behind me, I’ll reach more and more distance between us. Now realizing that the test is a success for me, but a failure for them, now thinking that it might be a crucial failure for them this time…
 
-And when I look behind me, realizing that they are about hundred meters away from me, and that in a certain spots and sharp turns I’m disappearing from their sight…
+And when I look behind me, realizing that they are about a hundred meters away from me, and that in certain spots and sharp turns I’m disappearing from their sight…
 
 I hit the brakes and stop, turn on my seat, wait for a few seconds… And when the first one of them appears on my sight I shoot at him smashing his visor, putting two bullets into his head. It’s only a few seconds later and he falls down, flying backwards by the force of the bullets, his bike still riding on itself, straight towards me.
 
@@ -3830,45 +3834,45 @@ But the other one is quick enough to dodge my bullets, by turning straight into 
 
 Now turning the gas fully on, heading towards the road, then running a short way across the asphalt, straight into a big parking area full of the campers, and cars…
 
-The parking area is completely full of the cars, and as realizing that the beach is full of the people of course, I must change my plan.
+The parking area is completely full of the cars, and as realizing that the beach is full of people too of course, I must change my plan.
 
-I was going to go to the beach, and ride along it towards to Malaga, then after about a kilometer, ride alongside the river, back to the road, heading off towards the port.
+I was going to go to the beach, and ride along it towards Malaga, then after about a kilometer, ride alongside the river, back to the road, heading off towards the port.
 
-I know the area very well as I have been around here a lot in my past, for months, several times. It was so called “free-camping” period here, on the big car park with a small camping van, similar to that old Mercedes we found from the garage, but blue. Back then I was just relaxing, being on a well earned rest, waiting for the next mission, and being ready to get back into action, anytime.
+I know the area very well as I have been around here a lot in my past, for months, several times. It was a so called “free-camping” period here, on the big car park with a small camping van, similar to that old Mercedes we found from the garage, but blue. Back then I was just relaxing, being on a well earned rest, waiting for the next mission, and being ready to get back into action, anytime.
 
-But, as there are too much people there now, the long beach being completely full, people everywhere here… that’s why I must change the plan.
+But, as there are too many people there now, the long beach being completely full, people everywhere here… that’s why I must change the plan.
 
-And now, speeding up at the highest the bike can do, straight towards the two black Dodge minivans, I’ll play the dearest game.
+And now, speeding up to the highest speed the bike can do, straight towards the two black Dodge minivans, I’ll play the dearest game.
 
-I must get into the port, as the plan was to have it as the final battleground. But the two vans are driving towards me, front of me, side by side, their obvious idea being to smash straight against me with the fastest speed.
+I must get into the port, as the plan was to have it as the final battleground. But the two vans are driving towards me, in front of me, side by side, their obvious idea being to smash straight against me with the fastest speed.
 
-We are playing the Russian Roulette now, I see, and I’m the one who got the worst cards I know. But, I must get onto the motorway leading to Malaga, it being the only option to get over the river.
+We are playing Russian Roulette now, I see, and I’m the one who got the worst cards I know. But, I must get onto the motorway leading to Malaga, it being the only option to get over the river.
 
 So, I turn the gas fully on, straight towards the front lights of the two Dodge minivans.
 
 But just about in a moment we are going to hit, me on the bike to smash against the front of the black Dodge, I turn sharply right and avoid the deathly collision.
 
-Now heading off towards to the Golf Resort, riding through the golf courts, with the highest speed possible, two vans following me… Thinking, that for sure, this race maneuver is making the owner mad, crazily mad, when they see us destroying the perfect neat grass…
+Now heading off towards the Golf Resort, riding through the golf courts, with the highest speed possible, two vans following me… Thinking, that for sure, this race maneuver is making the owner mad, crazily mad, when they see us destroying the perfect neat grass…
 
 What has to be done has to be done, I think.
 
-The bike being better here I’m actually gaining some distance to the vans. And as being so I have the best ever chance to get back to the road, to have cap enough to be able to avoid them from catching me on the motorway. There the Dodge vans with 350 horsepower motors are surely faster than the motocross bike, but the cap in between us now is my advantage.
+The bike being better here, I’m actually gaining some distance on the vans. And as being so I have the best ever chance to get back onto the road, to have enough of a cap to be able to avoid them catching me on the motorway. There the Dodge vans with 350 horsepower motors are surely faster than the motocross bike, but the cap in between us now is my advantage.
 
-And that’s why I’m now heading off from the golf resort. Next driving again by the asphalt road, then taking the exit into the motorway, ramp up with the gas on the bottom, straight on towards the Malaga…
+And that’s why I’m now heading off from the golf resort. Next driving again by the asphalt road, then taking the exit into the motorway, ramp up with the gas on the bottom, straight on towards Malaga…
 
-Now dodging through the traffic, avoiding from hitting the cars, I’m actually gaining the distance to the vans. There are too many cars blocking them. But my gain is only a little, too little to be safe, but at least it’s useless to them even to try to shoot me. And as thinking about that I’m actually thinking of the innocent people instead of my own skin.
+Now dodging through the traffic, avoiding hitting the cars, I’m actually gaining distance to the vans. There are too many cars blocking them. But my gain is only a little, too little to be safe, but at least it’s useless to them to even try to shoot me. And as thinking about that I’m actually thinking of the innocent people instead of my own skin.
 
 Only about a few kilometers and I’ll reach the straight road leading to a huge port area. The area is massive, I’ve been there before. I know exactly where to go and what ship to get into, but at first I’ll have to manage to do so.
 
-I’m just taking the exit away from the motorway. The two vans are now a fit further back there, both vans still following me, but having a safe distance between us now. It was actually lucky for me that the motorway was so full of the cars and actually almost jammed, as it helped to get away from the attackers.
+I’m just taking the exit away from the motorway. The two vans are now a bit further back there, both vans still following me, but having a safe distance between us now. It was actually lucky for me that the motorway was so full of  cars and actually is almost jammed, as it helped me get away from the attackers.
 
 Now, still riding with the fullest speed, forcing the bike to do its best, heading off along the shoreline road, a very wide long straight road now ahead of me… There is another nasty, but well expected surprise there.
 
-Just as I was thinking of my changes being actually good, there appears a new player in this came. I see a few police cars coming towards me, along the wide road.
+Just as I was thinking of my changes being actually good, there appears a new player in this game. I see a few police cars coming towards me, along the wide road.
 
-But, as the road is so wide, and I’m riding the bike, it’s easy for me to dodge them. And another big difference is that the police is avoiding from causing any crashes and accidents, or actually killing me. 
+But, as the road is so wide, and I’m riding the bike, it’s easy for me to dodge them. And another big difference is that the police is avoiding causing any crashes and accidents, or actually killing me. 
 
-They have completely different rules and different orders, obviously. Their handbook rather tells them to follow instead of even trying to stop by the force the speeders. And that makes the task to get away from them easy for me now. 
+They have completely different rules and different orders, obviously. Their handbook rather tells them to follow instead of even trying to stop the speeders by force. And that makes the task to get away from them easy for me now. 
 
 But obviously, they turn and start following me, now speeding up fast.
 
@@ -3903,71 +3907,71 @@ CHAPTER 27
 
 This has been an amazing journey I must say.
 
-While driving on, the police and the terrorists behind me, chasing, trying to stop me, catch me and… Yep, right, the police may be my savior but those guys will kill me hundred percent sure.
+While driving on, the police and the terrorists behind me, chasing, trying to stop me, catch me and… Yep, right, the police may be my savior but those guys will kill me a hundred percent sure.
 
 The latest events, the things are flashing on my mind, in a form of some kind of memory flash recollection of the… Unbelievable!
 
 At first the attack at the La Mata beach…
 
-Their clear intention was to cause the most horrific terrorist attack, bloody massacre with at least tens of casualties, on the beach, the one full of people, thousands of holidaymakers, in the most beautiful day on earth.
+Their clear intention was to cause the most horrific terrorist attack, a bloody massacre with at least tens of casualties, on the beach, the one full of people, thousands of holidaymakers, on the most beautiful day on earth.
 
-Then I got involved. There was a machine gun shootout, but I survived, and killed four terrorists, one with bare hands, and three with an instant death sentence middle of their forehead, one per each.
+Then I got involved. There was a machine gun shootout, but I survived, and killed four terrorists, one with bare hands, and three with an instant death sentence on the middle of their forehead, one per each.
 
-Then, I saw one man more, I followed him, found out that there were more of them…
+Then, I saw one more man, I followed him, found out that there were more of them…
 
-And I ended up killing them all, four more terrorists, but now practically about dying myself too. But, it was “the last chance” fake. And I survived once again. Then being a celebrated hero, given a new-birth name by the public, the “Matador”…
+And I ended up killing them all, four more terrorists, but now practically about dying myself too. But, it was “the last chance”. And I survived once again. Then being a celebrated hero, given a new-birth name by the public, the “Matador”…
 
-Then an escape, spending “quality time”, as camping for long hours in sudden hideout in the sewer tube. Then, the run through La Mata Park, refreshing bath, run along the rocky route, bushy and scratchy climbing to the Masa hotel, in where I have had been staying for some time… 
+Then an escape, spending “quality time”, camping for long hours in a sudden hideout in the sewer tube. Then, the run through La Mata Park, refreshing bath, run along the rocky route, bushy and scratchy climbing to the Masa hotel, in where I had been staying for some time… 
 
 Rough night healing my multiple wounds, and especially the gun shot hole through my hip. Horrific dream, waking up, straight into the hardcore reality…
 
-Hideout in the abandoned Eden Roc hotel, some rest with some supplies, but the terrorists finding me, and attacking with heavy force. Deathly shootout again, grenades, explosions, many of them dying...
+Hideout in the abandoned Eden Roc hotel, some rest with some supplies, but the terrorists finding me, and attacking with heavy force. Deadly shootout again, grenades, explosions, many of them dying...
 
-Escape, again, by the air now, flying, or actually almost free falling with the wind surfing kite, smashing into the sea. Sinking, practically just about dying again.
+Escaping, again, by the air now, flying, or actually almost free falling with the wind surfing kite, smashing into the sea. Sinking, practically just about dying again.
 
 But then, a miracle, somehow surviving, once again, but very, very narrowly…
 
 Long swim and the rocky route run through Torrevieja’s coastline, to the Marina Salinas. Hideout, catch up, as the police found me. 
 
-Powerboat escape, with a real big power yacht, causing little tsunami and a chaos again, crashing through the police barricade and the boat they had used for blocking my way out from the harbor. Speedy ride with the speedy yacht straight on towards to Italy. But finally turning and heading off to the south, towards Africa at this time.
+Powerboat escape, with a real big power yacht, causing a little tsunami and a chaos again, crashing through the police barricade and the boat they had used for blocking my way out from the harbor. Speedy ride with the speedy yacht straight on towards to Italy. But finally turning and heading off to the south, towards Africa this time.
 
-A bit later, the terrorists finding me again, attacking from the air by the helicopter, shooting, crazy shooting with a heavy machine gun. Then firing missiles, a massive explosion, the yacht being destroyed, back into the smallest pieces you can have it.
+A bit later, the terrorists finding me again, attacking from the air by the helicopter, shooting, crazy shooting with a heavy machine gun. Then firing missiles, a massive explosion, the yacht being destroyed, back into the smallest pieces you can have it in.
 
 Then the longest swim in my long history of the crazy things in the past, and now in the present, as forcefully drawn back into action, again, from my well deserved, permanent and enjoyable, mission of retirement…
 
 Then, the sweetest ever wakeup call, by a dog… and the most beautiful and desired woman in the world. But having a love framed duty call, unofficially official, back in, back to the ranks.
 
-And the following was the sweetest ever rally race experience in my crazy driver’s past life.
+And the chase was the sweetest ever race rally experience in my crazy driver’s past life.
 
-Only the fact that we had to escape the police cars, exceeding the limits of the Mercedes SLK, with 283 km high speed, down by the mountain motorway... Plus the fact that I had shoot down the news helicopter.
+Only the fact that we had to escape the police cars, exceeding the limits of the Mercedes SLK, with 283 km high speed, down by the mountain motorway... Plus the fact that I had to shoot down the news helicopter.
 
 Just to recollect a couple of little disturbing facts in the sweetest ever drive.
 
-But as always, the heroes will be rewarded, this time as well... With the most ever sport-active night sleep in a human history, history of mine, in the most memorable ways.
+But as always, the heroes will be rewarded, this time as well... With the most ever sport-active night sleep in human history, history of mine, in the most memorable ways.
 
-Then nice and peaceful but mountainous drive with an old Mercedes 508 survival style “army” van, green, having a good camouflage. 
+Then a nice and peaceful but mountainous drive with an old Mercedes 508 survival style “army” van, green, having a good camouflage. 
 
-Ending up to Malaga, to the Plaza Mayor to recollect some unforgettable memories, having the best ever beefs… Or actually, just a few bits of them.
+Ending up in Malaga, to the Plaza Mayor to recollect some unforgettable memories, having the best ever beefs… Or actually, just a few bits of them.
 
-Sudden shootout, machine guns bursting out the bullets again, the terrorist appearing with the motocross bikes trying to kill us… Managing to kill a few of them, pulling the rest behind me, having companied by the multiple police cars…
+Sudden shootout, machine guns bursting out the bullets again, the terrorists appearing with the motocross bikes trying to kill us… Managing to kill a few of them, pulling the rest behind me, being companied by the multiple police cars…
 
 And here I am… 
 
-Squeezing the gas at its toppest, reaching the highest speed ever reached by the bike on a fancy coastline boulevard, next to the greatest beaches in Malaga, heading off towards to the harbor, a huge Malaga port area.
+Squeezing the gas at its fullest, reaching the highest speed ever reached by the bike on a fancy coastline boulevard, next to the greatest beaches in Malaga, heading off towards to the harbor, a huge Malaga port area.
 
-So, with these memory flashes on my mind, at the same time trying to figure out, brains burning, that “what a fuck I can do?”
+So, with these memory flashes on my mind, at the same time trying to figure out, brains burning, that “what the fuck can I do?”
 
-The command given was to lead the terrorists into the harbor, to conduct a couple of maneuvers there, finally trapping so called “terrorists”, a bunch of mercenaries, at least some of them alive at this time.
+The command given was to lead the terrorists into the harbor, to conduct a couple of maneuvers there, finally trapping the so called “terrorists”, a bunch of mercenaries, at least some of them alive this time.
 
-Clear orders I admit, but the fact is that I’m well ahead of the schedule given. I was supposed to go to the port in peace, at nighttime, after the midnight, without any rush or people in danger around… And then end up into the planned point where the “guys”, our own guys are waiting for us.
+Clear orders I admit, but the fact is that I’m well ahead of the schedule given. I was supposed to go to the port in peace, at nighttime, after midnight, without any rush or people in danger around… And then end up into the planned point where the “guys”, our own guys are waiting for us.
 
-But the whole brilliant plan was blown up into the bullshit category by an “unexpected factor” taking the place in action, once again. As the fact apparently being, that I’m the only one, a lonely wolf, “our guy” here now... Obviously, without any backup, and help…
+But the whole brilliant plan was blown up into the bullshit category by an “unexpected factor” taking the place into action, once again. As the fact apparently being, that I’m the only one, a lonely wolf, “our guy” here now... Obviously, without any backup, and help…
 
 So, as being here, well too early now, just about arriving to the port area, luckily noticing an opening gate, swishing in through a narrow cap, the police and the terrorists apparently following me… 
 
 The question remains, pouring out loud from my mouth:
 
-    - What a fuck I can do?
+    - What the fuck can I do?
 
 
 
@@ -3984,41 +3988,41 @@ The question remains, pouring out loud from my mouth:
 CHAPTER 28
 
 
-I know the place very well, meaning the entire port area. I’ve got a photographic memory, and the satellite pictures which I have been examining, are on my mind, in as clear pictures as they were. I can see each of them, the whole area as one.
+I know the place very well, meaning the entire port area. I’ve got a photographic memory, and the satellite pictures which I have been examining, are on my mind, as clear as in the pictures. I can see each of them, the whole area as one.
 
 But the difference with the satellite pictures is that they are still, completely immobile, taken a little while ago. And that now, the situation is high-speed in everything.
 
 Now accelerating with the motocross bike, the police behind me, actually more police cars seen a bit further on even in the port area, the terrorists surely somewhere behind me, of course, still chasing and trying to kill me. 
 
-The satellite pictures, in this precise moment of a hardcore reality, are now the movie kind of scenes full of action. 
+The satellite pictures, in this precise moment of a hardcore reality, are now the movie kind of scenes of full of action. 
 
-Now speeding towards the actual port area, thinking, that the plan what was made to capture the terrorists, to trap and ambush them, is blown up in to the sky. There are too many unwanted factors in this game now.
+Now speeding towards the actual port area, thinking, that the plan was made to capture the terrorists, to trap and ambush them, is blown up in to the sky. There are too many unwanted factors in this game now.
 
-The police, lots of the police cars, apparently lots of more police and other security forces rushing up to arrive here, just right now…
+The police, lots of the police cars, apparently lots more police and other security forces rushing up to arrive here, just right now…
 
-Yep, the police are so unwanted factor now.
+Yep, the police are such an unwanted factor now.
 
-And another annoying fact is that I’m way too early here, even hours. And that means that whatever was the plan, additional resources on our side, our backup guys, are hardly anywhere even close here yet.
+And another annoying fact is that I’m way too early here, hours even. And that means that whatever the plan was, additional resources on our side, our backup guys, are hardly anywhere even close to here yet.
 
-And that means that I’m pretty much alone here, with all these mind-meddling real-time factors. And maybe the worst in all is that I’ve got absolutely zero time to consider and make plans. It’s all about high-speed chase, present, happening just right now.
+And that means that I’m pretty much alone here, with all these mind-meddling real-time factors. And maybe the worst of all is that I’ve got absolutely zero time to consider and make plans. It’s all about a high-speed chase, present, happening just right now.
 
-And the only option left for me is, improvise.
+And the only option left for me is, to improvise.
 
 Now, when going to drive over a little bridge to get onto the other side of the river, I see that it has been blocked by the police car on the other side.
 
-The next chance is to try and old railway bridge just next to the Puente De Hierro, and as seeing a bit more freeway there, turning now towards to it, I see I got a little chance to get onto the other side. 
+The next chance is to try the old railway bridge just next to the Puente De Hierro, and as seeing a bit more freeway there, turning now it, I see I got a little chance to get onto the other side. 
 
-I must get onto the other side. The plan is still on and I’ll have to go to the certain cargo ship in the harbor. And I can only hope that our guys have done their job, preparations, been early enough… But I doubt it, as the plan was to deploy it when the night falls.
+I must get onto the other side. The plan is still on and I’ll have to go to a certain cargo ship in the harbor. And I can only hope that our guys have done their job, preparations, been early enough… But I doubt it, as the plan was to deploy it when the night falls.
 
-It all was supposed to happen at night, next night. And the whole thing, ending to this long chase, was supposed to be dealt between us and the terrorists. And now, there are too many people here, too much traffic, and too much polices, everywhere…
+It all was supposed to happen at night, next night. And the whole thing, ending to this long chase, was supposed to be dealt with between us and the terrorists. And now, there are too many people here, too much traffic, and too many police, everywhere…
 
-As seeing many more police cars in the certain spots, kind of looking like securing the place, I start to understand that something else is wrong as well.
+As seeing many more police cars in certain spots, kind of looking like securing the place, I start to understand that something else is wrong as well.
 
 Now passing by the railway bridge onto the other side, seeing the policemen next to the police car blocking another bridge only about fifty meters away, looking at me and the police cars behind me, being amazed.
 
 And at the same time when speeding up again, straight forward, I see from the mirror how the car blocking the bridge moves to open the way for the police cars behind me.
 
-And even more bothering than that is the fact that it looks like there are police cars all over the place, seemingly blocking all the ways anywhere here. It’s odd I think, there is about zero possibility that the police would have know anything about our plans to come here. And that’s seriously worrying me now.
+And even more bothering than that is the fact that it looks like there are police cars all over the place, seemingly blocking all the ways anywhere here. It’s odd I think, there is about zero possibility that the police would have known anything about our plans to come here. And that’s seriously worrying me now.
 
 Now, when going to go towards the road leading onto the other side of the port, I realize that it’s completely blocked by the police. And that’s why I have to turn back, now heading off to a large port dock.
 
@@ -4028,15 +4032,15 @@ Then when seeing a very large luxury cruise ship on the other side of the port, 
 
 There must be some huge event here, some very important conference full of very important people, maybe politicians, maybe even the presidents and the most important leaders. Who knows if the American President has arrived here? At least all the security arrangements seem to be in a category like that.
 
-And as thinking of that, it all makes the game plan even worse… The port was supposed to be empty, but now it’s complete opposite. We were supposed to be able to deploy the plan “in peace”, catch the terrorists, at least some of them alive, and to find out that what has been going on.
+And as thinking of that, it all makes the game plan even worse… The port was supposed to be empty, but now it’s the complete opposite. We were supposed to be able to deploy the plan “in peace”, catch the terrorists, at least some of them alive, and to find out what has been going on.
 
 I hit the brakes on and stop the bike…
 
-Now looking at the other side, seeing it absolutely full of cars and the people, and already seeing how it looks like everybody starts moving there… Oh, yes, they must suppose that there is some attack here, again, and that I’m the attacker.
+Now looking at the other side, seeing it absolutely full of cars and people, and already seeing how it looks like everybody starts moving there… Oh, yes, they must suppose that there is some attack here, again, and that I’m the attacker.
 
-Is it any wonder regarding to the terrorist attack which just happened in the Plaza Mayor, and I’m coming straight from there…
+Is it any wonder regarding the terrorist attack which just happened in the Plaza Mayor, and I’m coming straight from there…
 
-And now, it looks like there is a total chaos exploding there. So, what now? Should I withdraw myself, pull out, and just try to escape from the police, and the terrorists? 
+And now, it looks like there is total chaos exploding there. So, what now? Should I withdraw myself, pull out, and just try to escape from the police, and the terrorists? 
 
 The fact is that the situation has gone from very bad to even worse. And it’s getting even worse than that when I see the police cars coming towards me, then braking, stopping, the policemen jumping out from their cars, now pointing their handguns at me…
 
@@ -4044,23 +4048,23 @@ One thing is absolutely sure, I gotta go now!
 
 Turning the gas full on, now speeding up towards the ramp I see, the boat ramp down straight to the water…
 
-Only a hundred meters more and I get on it, now riding along it, the speed still accelerating, from 80 km an hour to hundred…
+Only a hundred meters more and I get on it, now riding along it, the speed still accelerating, from 80 km an hour to a hundred…
 
-At the moment I reach the waterline, realizing that the ride over the water is going to be bumpy, maybe way too bumpy. 
+At the moment I reach the waterline, I realize that the ride over the water is going to be bumpy, maybe way too bumpy. 
 
 Now speeding along the water surface, the gas fully on, the bike is making little jumps already because of the waves. Even though the water is very calm and the waves are small, it’s too much for this kind of ride. 
 
-The bike starts getting wild, being too bumpy ride, and I start loosing the chance to get over into the other side. I have done about eighty meters, but actually into the wrong direction now, as the waves are making the bike uncontrollable. I’m just kind of following it, trying to get as close the other side as possible.
+The bike starts getting wild, being too bumpy of a ride, and I start loosing the chance to get over into the other side. I have done about eighty meters, but actually into the wrong direction now, as the waves are making the bike uncontrollable. I’m just kind of following it, trying to get as close to the other side as possible.
 
-At the same time I notice two jet-skis approaching me from the side, and one more a bit behind them, all coming fast towards me. They are apparently the security forces, so there is zero chance that I would shoot at them. And even if they would look like the terrorists, I have zero chance to shoot at anyone, as the bike is getting totally out of control now. I know that the end of this ride is just right about there.
+At the same time I notice two jet-skis approaching me from the side, and one more a bit behind them, all coming fast towards me. They are apparently the security forces, so there is zero chance that I would shoot at them. And even if they would look like the terrorists, I have zero chance to shoot at anyone, as the bike is getting totally out of control now. I know that the end of this ride is just right about here.
 
 Realizing that I’m going to fail… 
 
 Thinking of losing the chance to get onto the other side, into a little cargo ship which is kind of waiting for me, the one which was our trap point for the terrorists… 
 
-Thinking how the plan was to arrange me a set of diving gears along with the diver’s scooter for a submerged dive, being my planned escape route…
+Thinking about how the plan was to arrange me a set of diving gears along with the diver’s scooter for a submerged dive, being my planned escape route…
 
-Seeing the three jet-skis getting closer, the motocross bike going to take the last jump and then sink in any moment, me surely being captured… The whole thing seems like a big, big failure now.
+Seeing the three jet-skis getting closer, the motocross bike going to take the last jump and then sink any moment, me surely being captured… The whole thing seems like a big, big failure now.
 
     - “Fuck!”
 
@@ -4094,27 +4098,27 @@ CHAPTER 29
 
 Suddenly, I realize that there is a jet-ski just behind me, on my right side, and that it’s approaching me fast, in a moment when the bike is starting to sink still being in full speed. 
 
-The back wheel is starting to get deeper, the speed slowing down fast, a big splash going to be my next and final action…
+The back wheel is starting to go deeper, the speed slowing down fast, a big splash is going to be my next and final action…
 
 But then, suddenly, surprisingly, I can hear a familiar voice, shouting:
 
     - Jump, I’ll get you!
 
-It’s Rosa I realize, the first joy being the fact that she is alive, and the next that I may have a chance. I blink onto my right side, now putting my feet onto the bike’s seat, bouncing hard, and jumping onto the back of the Rosa’s jet-ski, successfully.
+It’s Rosa I realize, my first joy being the fact that she is alive, and the next that I may have a chance. I blink onto my right side, now putting my feet onto the bike’s seat, bouncing hard, and jumping onto the back of the Rosa’s jet-ski, successfully.
 
-She is turning the gas full on, at the same time turning towards to the port exit, yelling:
+She is turning the gas fully on, at the same time turning toward the port exit, yelling:
 
-    - We pull you out, it’s done, must go!
+    - We'll pull you out, it’s done, we must go!
     - Let’s try to get away from here.
 
-But then, both of us, realize that there are couple of patrol boats in front of us, and two more coast guard jet-skis in addition to those already behind us, and she has to turn back, taking a sharp turn to the right.
+But then, both of us, realize that there are a couple of patrol boats in front of us, and two more coast guard jet-skis in addition to those already behind us, and she has to turn back, taking a sharp turn to the right.
 
 But the other skis are clearly going to block us, and as the weight of two of us on one jet-ski is slowing us down, and as they are only one on one riding, thus being much faster than we are… And especially now when I can see them having their guns pulled out.
 
 I shout at Rosa:
 
     - Turn to the right and take me to the dock there, the one where the trap is!
-    - I jump of and you must try to escape!
+    - I'll jump off and you must try to escape!
     - Is the underwater scooter there?!
 
 She replies with yelling only one word:
@@ -4130,7 +4134,7 @@ Then shouting and adding:
     - But take me there anyway!
     - I’ll find a way out!
 
-She’s now heading towards the ship which was our planned trap point for the terrorists. It was perfect for the purpose, as the docking is a bit away from the actual large breakwater road, only parking area being close to it.
+She’s now heading towards the ship which was our planned trap point for the terrorists. It was perfect for the purpose, as the docking is a bit away from the actual large breakwater road, only a parking area being close to it.
 
 There is a local Yacht Club, “Real Club Mediterraneo” there, and all of their fancy facilities, but the distance to there was considered safe enough. But anyway, the plan has been dumped now and the only thing to do is to find a way out, to escape.
 
@@ -4140,19 +4144,19 @@ At the same time when Rosa is reaching close enough to the cargo ship, and I’m
 
 I’m already in the air, being too late to say “you too”, I splash into the water. 
 
-Now climbing up the rope ladders hanging on the side of the ship, seeing Rosa speeding up and trying to get away from the jet-skis, two of them coming now towards me, their guns pointing at me… Now their bullets starting to snap into the steel, annoyingly too close...
+Now climbing up the rope ladders hanging on the side of the ship, seeing Rosa speeding up and trying to get away from the jet-skis, two of them coming now towards me, their guns pointing at me… Now their bullets starting to snap into the steel, annoyingly, too close...
 
-Just a few seconds later, still alive and surprisingly without additional bullet holes in my body, thankful for that, now climbing over the cargo ship’s edge, boarding onto the deck…
+Just a few seconds later, still alive and surprisingly without additional bullet holes in my body, I'm thankful for that. Now climbing over the cargo ship’s edge, boarding onto the deck…
 
-Being ready to confront anyone, terrorists, or anyone, I see the whole deck being empty. My options being very few, the reality gotten too hard and harsh for me, once again, I have only one thing on my mind… Survival!
+Being ready to confront anyone, terrorists, or anyone, I see the whole deck being empty. My options being very few, the reality has gotten too hard and harsh for me, once again, I have only one thing on my mind… Survival!
 
 Once again, it’s all about survival.
 
-There are way too many people and the cars there where the cruise ship and the entire cruise terminal are. And that means that it’s out of the question for me now. And it’s a way too big chaos there already now.
+There are way too many people and the cars there where the cruise ship and the entire cruise terminal are. And that means that it’s out of the question for me now. And it’s way too big of a chaos there already now.
 
-The only option for me is to run towards to the Real Club Mediterraneo, it possibly being less crowded now, and thus maybe a way out somewhere there. Maybe I can highjack another bike or even boat on the other side of the breakwater, to get out from there.
+The only option for me is to run towards the Real Club Mediterraneo, it possibly being less crowded now, and thus maybe having a way out somewhere there. Maybe I can hijack another bike or even boat on the other side of the breakwater, to get out from there.
 
-But then, something very disturbing blinks in my eye, in the corner of my right eye… Little red dots, two of them! And actually now when looking at to that direction, I can see even more of them… reacting typically to me…
+But then, something very disturbing blinks in my eye, in the corner of my right eye… Little red dots, two of them! And actually now when looking at that direction, I can see even more of them… reacting typically to me…
 
 “Fuck!” 
 
@@ -4160,61 +4164,61 @@ Realizing, that they have loaded the cargo ship with explosives! And they are th
 
 I take an instant hike, running as fast as I can towards the other side and railing of the ship. Two more long leaps and I jump straight over the reeling, with a long fly towards to the concrete ground.
 
-At the same time the whole ship seems to explode behind me, a huge fireball almost covering me and hiding me inside of it. The explosion is massive, being series of explosions all at the same time. 
+At the same time the whole ship seems to explode behind me, a huge fireball almost covering me and hiding me inside of it. The explosion is massive, being a series of explosions all at the same time. 
 
-And for me, it’s about five meter’s free fall down, straight to the concrete.
+And for me, it’s about a five meter’s free fall down, straight onto the concrete.
 
-I take the hit with my legs, giving up in a way that it slows down the impact, falling down frontwards at the same, making a perfect summersault, only one, ending up back on my feet, now starting to run.
+I take the hit with my legs, giving up in a way that it slows down the impact, falling down forwards at the same time, making a perfect somersault, only one, ending up back on my feet, now starting to run.
 
-It was a perfect jump, done by the playbook I think, at the same time as I see a bicycle on the left. I turn towards it, check the lock, take the gun from under my belt, and hit the lock with the magazine handle, only once, and it breaks the lock. 
+It was a perfect jump, done by the play-book I think, at the same time as I see a bicycle on the left. I turn towards it, check the lock, take the gun from under my belt, and hit the lock with the magazine handle, only once, and it breaks the lock. 
 
 Jumping on the Rock Rider, speeding up as fast as I can, seeing lots of people here, everywhere, two police cars, some police men… 
 
 “Shit!”
 
-Both ways, the one towards to the town and the one towards to the Cruise Terminal, are both blocked, completely blocked. And the only way out seems to be over the breakwater, even though that behind it, there is only the sea, and behind the sea, Africa.
+Both ways, the one towards the town and the one towards the Cruise Terminal, are both blocked, completely blocked. And the only way out seems to be over the breakwater, even though behind it, there is only the sea, and behind the sea, Africa.
 
 The breakwater is a massive wall, five meters tall, a huge concrete construction, hundreds of meters long, built to protect the harbor from the biggest waves the sea can form and roll towards it. The whole construction, described by one word, is “massive”.
 
 I see a concrete construction supporting the breakwater. Stylish curving columns, in the perfect line only about twenty meters away from the next, hundreds of them alongside the massive breakwater. 
 
-I’ll have to get there, I think. But on the way there I will pass the Cruise Terminal, and before being able to do so, there is a complete block, three police cars forming a barricade, preventing anyone getting in or out.
+I’ll have to get there, I think. But on the way there I will pass the Cruise Terminal, and before being able to do so, there is a complete block, three police cars forming a barricade, preventing anyone from getting in or out.
 
-Straight ahead towards a little yacht harbor. I can see the sign Real Club Mediterraneo, thinking, that I’ll pay a visit then. I jump off from the bike, it being my turn to carry the bike now. Next running along the rocks while carrying the bike, jumping from one to the other, straight into the end of a rocky yacht mooring construction…
+Straight ahead towards a little yacht harbor. I can see the sign Real Club Mediterraneo, thinking, that I’ll pay them a visit. I jump off from the bike, it being my turn to carry the bike now. Next running along the rocks while carrying the bike, jumping from one to the other, straight into the end of a rocky yacht mooring construction…
 
 Only a little problem to overtake, just a short distance to swim. Now pulling the bike in the water with me, reaching the rocks on the other side, then hopping on the ride again, now speeding up pedaling as fast as I can, again…
 
-Now riding with the bike towards the one particular column, getting as much speed as I can, taking a jump from a little ramp next to the big trash containers next to the column… One more jump, the longest one, now riding up along the column.
+Now riding with the bike towards one particular column, getting as much speed as I can, taking a jump from a little ramp next to the big trash containers next to the column… One more jump, the longest one, now riding up along the column.
 
-I’m reaching the ridge of the breakwater, stopping for a moment, now looking to the left towards to the town, then to the right along at least half a kilometer long breakwater’s bridge, leading to the end point of it, to the furthest point from the harbor.
+I’m reaching the ridge of the breakwater, stopping for a moment, now looking to the left towards the town, then to the right along at least half a kilometer long breakwater’s bridge, leading to the end point of it, to the furthest point from the harbor.
 
-It’s looking like a perfect surface, kind of a mountain ridge to me, I start driving along it, speeding up towards to the end point.
+It’s looking like a perfect surface, kind of a mountain ridge to me, I start driving along it, speeding up towards the end point.
 
-What would be the best than to end this chase in the end of it, I think.
+What would be the best than to end this chase at the end of it, I think.
 
-I start a long ride along the breakwater’s bridge, looking towards the Cruise Terminal. It’s a total chaos there, the people screaming, the security trying to direct the people, an apparent terrorist attack the biggest fear for all.
+I start a long ride along the breakwater’s bridge, looking towards the Cruise Terminal. It’s total chaos there, the people screaming, the security trying to direct the people, an apparent terrorist attack the biggest fear for all.
 
-I’m passing by the Cruise Terminal feeling sorry. Still speeding up the speed along the breakwater’s ridge, it looking like a perfect highway for the off-road bikes, on the seaside a huge rock blocks about five meters down, and on the port’s side a road maybe seven meters fall down in a case of falling. 
+I’m passing by the Cruise Terminal feeling sorry. Still speeding up the speed along the breakwater’s ridge, it looking like a perfect highway for the off-road bikes, on the seaside, huge rock blocks about five meters down, and on the port’s side a road maybe seven meters fall down in a case of falling. 
 
-In front of me, over half a kilometer long and a few meters wide concrete construction, being an ideal flat highway for the off-road bikes, leading off towards to the sea horizon…
+In front of me, over half a kilometer long and a few meters wide concrete construction, being an ideal flat highway for the off-road bikes, leading off towards the sea horizon…
 
-But suddenly, someone is firing at me with the machine guns. And when I look at them, the two Dodge vans driving on the road down there, the words burst out from my mouth:
+But suddenly, someone is firing at me with the machine guns. And when I look at them, there are two Dodge vans driving on the road down there, the words burst out from my mouth:
 
-    - What a hell?!
+    - What the hell?!
     - How can those bastards be here?!
 
 Suddenly, a new plan forming on my mind…
 
 These guys must be seriously mad, I think. They are ready to risk anything to catch me and to kill me. 
 
-But why? What’s sense in that? 
+But why? What sense is in that? 
 Just for retaliation?
 
 But the fact is that they seem to have the best ever resources, and apparently, they are unbelievable bold. Maybe they are so confident based on their resources that they can do anything they like. And maybe they have got better plans, with guaranteed escape options.
 
 Now riding along the ridge, seeing how the first Dodge van is crashing through the gates blocking the entrance to the road alongside the massive breakwater.
 
-Thinking, that we are all heading now towards to the end, the end point…
+Thinking, that we are all heading now towards the end, the end point…
 
 
 
@@ -4234,49 +4238,49 @@ Thinking, that we are all heading now towards to the end, the end point…
 CHAPTER 30
 
 
-The terrorists now following, but why they stopped firing? Maybe they think that there is the end for me, the point where they will catch me, and apparently kill me.
+The terrorists are now following, but why did they stop firing? Maybe they think that there is the end for me, the point where they will catch me, and apparently kill me.
 
 The breakwater ridge ride to this direction is leading only into one place, and it’s the end point. After that there is only the sea there.
 
-I’m just about to reach the end point, a quite large part of the breakwater. But then, when I see a helicopter in front of me, flying low, I realize why they stopped from firing at me. There are even bigger guns there. And just right in a moment of that terrible realization, the two 50 caliber machine guns start peppering at me, all around me.
+I’m just about to reach the end point, a quite large part of the breakwater. But then, when I see a helicopter in front of me, flying low, I realize why they stopped firing at me. There are even bigger guns there. And just right in the moment of that terrible realization, the two 50 caliber machine guns start peppering at me, all around me.
 
-And just in a moment I’m going to get onto the narrow bridge leading from the breakwater ridge into the rooftop of the building, the bullet hits the front wheel. I fall down over the steering column, and this time I roll over a couple of times, on a hard concrete, in fully uncontrollable way.
+And just in the moment I’m going to get onto the narrow bridge leading from the breakwater ridge into the rooftop of the building, the bullet hits the front wheel. I fall down over the steering column, and this time I roll over a couple of times, on hard concrete, in fully uncontrollable way.
 
 I hurt myself, pretty bad. And the big bullets of the 50 cal guns are peppering the concrete around me, and as there is only one way to survive, I take it.
 
-Now jumping a long leap forward, rolling a perfect summersault twice to avoid the bullets even though it seems all in vain, finally reaching the bridge, then standing up again…
+Now jumping a long leap forward, rolling a perfect somersault twice to avoid the bullets even though it seems all in vain, finally reaching the bridge, then standing up again…
 
-Now running along the bridge, the pullets still peppering around me, and when reaching the rooftop the bullets start getting closer, hitting the roof too close to me. Finally reaching the door, it being the only door away from here… At the same time, realizing, that the only doorway, a thick metal door is locked, with two heavy locks one up and one down.
+Now running along the bridge, the bullets still peppering around me, and when reaching the rooftop the bullets start getting closer, hitting the roof too close to me. Finally reaching the door, it being the only door away from here… At the same time, realizing, that the only doorway, a thick metal door is locked, with two heavy locks one up and one down.
 
-Kicking it once, as hard as I can, but in vain as it feels like kicking a solid rock… But then the guns fall silent, and I turn to look towards the helicopter, now hanging in the air, its front pointing at me, the pilot looking at me, at the same time smiling.
+I kick it once, as hard as I can, but in vain as it feels like kicking a solid rock… But then the guns fall silent, and I turn to look towards the helicopter, now hanging in the air, its front pointing at me, the pilot looking at me, at the same time smiling.
 
 “Fuck!”
 
-His smirk look too bad for me, and I start running towards to the edge of the rooftop. I know it’s about three stores down, straight to the concrete, but I’ll take it.
+His smirk looks too bad for me, and I start running towards to the edge of the rooftop. I know it’s about three stories down, straight to the concrete, but I’ll take it.
 
 At the same time when I’m just about going to jump down, the rockets hit the rooftops surface, two huge explosions at the same time, both sides a little behind me.
 
-The airwave swings me forward, messing up my balance, and if I was too crazy to try to make a “perfect” landing on concrete, from eight meters high rooftop… I can feel the airwave, also realizing that the plan is blown up anyway, as the two hot red huge fireballs are reaching me.
+The airwaves swing me forward, messing up my balance, and if I was too crazy to try to make a “perfect” landing on concrete, from an eight meter high rooftop… I can feel the airwave, also realizing that the plan is blown up anyway, as the two hot red huge fireballs are reaching me.
 
-It’s getting too familiar this thing to me I think, at the same time when falling towards to the roof of the terrorist Dodge’s roof.
+It’s getting too familiar, this thing to me, I think, at the same time when falling towards to the roof of the terrorist Dodge’s roof.
 
 Yeah, it would be a funny coincidence in some action movie, but that’s happening just right now. And the only thing I can do is to strengthen my body to take the impact. And I smash down, landing on my back first, straight on the Dodge’s roof.
 
-My lungs get smashed too, and the air I had squeezes out. My breath gets frozen forcing me to gasp air, but all in vain.
+My lungs get smashed too, and the air I had squeezes out. My breath gets frozen forcing me to gasp for air, but all in vain.
 
-And just when I thought that it’s impossible to get any worse anymore. I turn my face to the left, just to look straight to the eyes of the terrorist. But there is still a tiny hope living in my soul, and instantly, instinctively, I’m offering him a solution, from less than a meter away, with one bullet in the middle of his eyes, literally.
+And just when I thought that it’s impossible to get any worse anymore. I turn my face to the left, just to look straight into the eyes of the terrorist. But there is still a tiny bit of hope living in my soul, and instantly, instinctively, I’m offering him a solution, from less than a meter away, with one bullet in the middle of his eyes, literally.
 
-Then another terrorist on the other side of the car, staring at me, gets the same sentence, also delivered by me. And just right then, the helicopter, now above the building, gets a hit, fired from somewhere. I see it starting to fall down towards to the rooftop. And as looking at it, being frozen still myself, I see how the copter crashed on to the roof, but just slightly, in a way that it starts falling down.
+Then another terrorist on the other side of the car, staring at me, gets the same sentence, also delivered by me. And just right then, the helicopter, now above the building, gets a hit, fired from somewhere. I see it starting to fall down towards the rooftop. And as looking at it, being frozen still myself, I see how the copter crashes on to the roof, but just slightly, in a way that it starts falling down.
 
-And the worst part in the glory is that it’s falling down towards the very exact Dodge I’m laying on. And, in that very particular moment, both of us, one terrorist who’s taken a firm grip from my handgun hand, being ready to kill me with a big knife on his hand, and me… We got the same idea, escape.
+And the worst part in the glory is that it’s falling down towards the very exact Dodge I’m laying on. And, in that very particular moment, both of us, one terrorist who’s taken a firm grip on my handgun hand, being ready to kill me with a big knife on his hand, and me… We got the same idea, escape.
 
-My way is rolling over backwards first, into the ground, then taking a short run, straight over the edge of the breakwater’s car park, in to the sea, plunging through the surface, starting to sink towards the bottom.
+My way is rolling over backwards first, into the ground, then taking a short run, straight over the edge of the breakwater’s car park, into the sea, plunging through the surface, starting to sink towards the bottom.
 
-And when sinking, I’m thinking, as my last thoughts in my life… that this practice starts to be a bit too familiar too. And just in a moment when I’m practically fainting, at the same time, I’m feeling how someone is taking a firm grip from my arm. It’s firm, somehow unbelievably firm, but sweet…
+And when sinking, I’m thinking, as my last thoughts in my life… that this practice starts to be a bit too familiar too. And just the moment when I’m practically fainting, at the same time, I’m feeling how someone is taking a firm grip on my arm. It’s firm, somehow unbelievably firm, but sweet…
 
-Someone, accompanied with another, which is now putting a scuba-diving mask on my face, start to transport my almost death body, by the underwater scooter. 
+Someone, accompanied with another, whom is now putting a scuba-diving mask on my face, starting to transport my almost dead body, with the underwater scooter. 
 
-At the same time when I’m gasping air, I can hear, with crystal clear crystal sound, how Rosa’s the most beautiful voice in this world, is telling me:
+At the same time when I’m gasping for air, I can hear, with crystal clear crystal sound, how Rosa’s the most beautiful voice in this world, is telling me:
 
     - We got ya!
 
